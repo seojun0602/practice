@@ -54,8 +54,7 @@ Office Staff
 | **생일** | [4월 20일](/w/4%EC%9B%94%2020%EC%9D%BC) |
 | **신장** | 153㎝[[1]](#fn-1) |
 | **MBTI** | [ENTP](/w/ENTP)/[INTP](/w/INTP)[[출처]](#fn-%ec%b6%9c%ec%b2%98) |
-| **국적** | [ 대한민국
-](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3) |
+| **국적** | [ 대한민국 ](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3) |
 | **1인칭** | [카나데](/w/3%EC%9D%B8%EC%B9%AD%ED%99%94)(奏), 와타시(私)[[4]](#fn-4) |
 | **소속** | [ReGLOSS](/w/ReGLOSS) |
 | **디자인** | [gomzi](/w/gomzi)[[5]](#fn-5) |
