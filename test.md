@@ -54,17 +54,27 @@ Office Staff
 | **생일** | [4월 20일](/w/4%EC%9B%94%2020%EC%9D%BC) |
 | **신장** | 153㎝[[1]](#fn-1) |
 | **MBTI** | [ENTP](/w/ENTP)/[INTP](/w/INTP)[[출처]](#fn-%ec%b6%9c%ec%b2%98) |
-| **국적** | [ 대한민국 ](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3) |
+| **국적** | [ 대한민국
+](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3) |
 | **1인칭** | [카나데](/w/3%EC%9D%B8%EC%B9%AD%ED%99%94)(奏), 와타시(私)[[4]](#fn-4) |
 | **소속** | [ReGLOSS](/w/ReGLOSS) |
 | **디자인** | [gomzi](/w/gomzi)[[5]](#fn-5) |
 | **Live 2D** | [おつくえ](https://twitter.com/otsukue) |
-| **데뷔** | [2023년](/w/2023%EB%85%84) [9월 9일](/w/9%EC%9B%94%209%EC%9D%BC) +684일째 |
+| **데뷔** | [2023년](/w/2023%EB%85%84) [9월 9일](/w/9%EC%9B%94%209%EC%9D%BC)
++684일째 |
 | **구독자 수** | 71.7만 명[[기준]](#fn-%ea%b8%b0%ec%a4%80) |
-| **팬덤 애칭** | 오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7) 오마에라 (おまえら)[[8]](#fn-8) |
-| **별명** | 캬나디 (キャナディ)[[9]](#fn-9) 카나디 (かなでぃ)[[10]](#fn-10) 카나데소 (奏そ)[이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)[[11]](#fn-11) 카나두이 (Kanaduy)[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)[[12]](#fn-12) 카나짱 (かなちゃん)[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8) 오토짱 (おとちゃん)[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)[[13]](#fn-13) 카난누 (かなんぬ)[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)[[14]](#fn-14) 연주한국 커뮤니티 한정 |
+| **팬덤 애칭** | 오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7)
+오마에라 (おまえら)[[8]](#fn-8) |
+| **별명** | 캬나디 (キャナディ)[[9]](#fn-9)
+카나디 (かなでぃ)[[10]](#fn-10)
+카나데소 (奏そ)[이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)[[11]](#fn-11)
+카나두이 (Kanaduy)[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)[[12]](#fn-12)
+카나짱 (かなちゃん)[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)
+오토짱 (おとちゃん)[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)[[13]](#fn-13)
+카난누 (かなんぬ)[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)[[14]](#fn-14)
+연주한국 커뮤니티 한정 |
 | **오시마크** | 🎹✨ |
-| **싸인[[15]](#fn-15)** | [](/jump/dAM1dIyniFxpvsOJBnpVjprOEKD0vHkQOzWYbB%2Bg9dRa1gjp7fb7MfFq2I%2BkM6WPZyrxlKr6lW0s1NyPMtIFlQ%3D%3D) |
+| **싸인[[15]](#fn-15)** | [](/jump/2ZEXIr%2Fg0vQjUydSPl%2F5n33hb1ZI4S811ZleWEGom8MGYiGD8Wrhda%2FYzq5GgmtYK%2FTv0IHVETHj1qbyN3hbrA%3D%3D) |
 | **외부 링크** | [](https://www.youtube.com/@OtonoseKanade) | [](https://x.com/otonosekanade) | [](https://hololive.hololivepro.com/talents/otonose-kanade/)| [](https://www.tiktok.com/@otonosekanade_regloss) |
 
 [1](#s-1). 개요[2](#s-2). 캐릭터 시트[3](#s-3). 스트리밍 규칙[4](#s-4). [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[5](#s-5). [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[6](#s-6). [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[7](#s-7). 관련 밈[8](#s-8). 다른 유튜버와의 관계[8.1](#s-8.1). DEV_IS[8.2](#s-8.2). JP[8.3](#s-8.3). ID[8.4](#s-8.4). EN[8.5](#s-8.5). 홀로라이브 이외
@@ -366,14 +376,13 @@ Live2D 모델의 표정 변경 시 [바보털도 움직인다](https://www.youtu
 [](#s-21)
 
 wZYMnyDJ
-[![대전 신축 레지던스 베가시티](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwrI2ulJ0sJlCfGl8tht2OwUcpDB5LRaWyr2q_JHJ7YyTWfJXA8d_CZ2aK8_3fl4z2Z3O1_r1UazKHv3jojjtyHavyagRo-arGFIrjnyOWnddOlPR1vwxzJwjlv3BKCa7lxIMuArBZhKySMaKnXR559tgCLPieRXEoC2eQeHwaoXHSr89Oe835d-9yvKKWeUvHlVjaiXaBqmDUvvmaX0EkpvuvqOm8AFArhAScwbn5nzMgUdECi-GENRxDMhArz-s7.png)
-](#s-21)[대전 신축 레지던스 베가시티](#s-21)[smartstore.naver.com/vegacity](#s-21)![오토노세 카나데](//i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPak7ZkgL3SOWtTcZtuTjIbv0.png)
+[![(대전,세종)/대전인력사무소](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwgbQNASazYKliDHT8s93gSE4TIBxkugFAq1Glt0Kmp5OTyZx-4F7D9DlMh6496AjtNpntN3edOrCplOIesTXMrC1S8RIbfI8OdnPWfQNNlm-uslSpNs7m1rmrlF5PFw3XTFRUjqfw1sPQuK8-drGmBodOrFzTccxy-358QOwcBtbbwtkxOE9Cinhfsj9zEDnGkqHQIkFFu3rhEPIXcD8IvGFP6kGIMQeq10PrmeyiPBoxRjCnbUPP5uQjHYVSDNOE.png)
+](#s-21)[(대전,세종)/대전인력사무소](#s-21)[blog.naver.com/ush5367](#s-21)
+[24시간 친절상담/대전,세종,공주 전지역 성실한 인력 항시대기/고객만족/구인구직/](#s-21)
 
-[평일 예약](#s-21)[주말 예약](#s-21)[문의 톡톡](#s-21)[넓은 레지던스 이보다 저렴할수 없다. 5인 이상도 가능 애견 전용 호실 배치](#s-21)
-
-[![길 공인중개사 사무소](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFw86xg8bCNq_XBRRGks3sBmRSnCB7jRRGGviXjG9yllcn3ldihZZQ56csZT2jpVL9hW1FKfsP7eEPgmliB2dFQ3exMcPPkBKmvS7WCjWIQZtYkkoQ0NpMhx4PVCtzAYrt7WDtVjnlIUQVXnDlssCto7waOLbsPLOZrooeyPaQhIAFuF9MY23PJbuYqspBHLt8S1mQII_xscDWM6Vo4wWeEEf7EniDt1zF8J9FJjQ7CqBLWNmsS71WUmCsdzqSLSeWO.png)
-](#s-21)[길 공인중개사 사무소](#s-21)[blog.naver.com/new-road](#s-21)
-[한남대학교,대전복합터미널 인근 원룸,투룸 임대 및 매매 전문부동산,동영상 확인가능](#s-21)
+[![중고트럭전문매매 백두산트럭](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFw-Nt_PUYye_QqqraiCOYEXPdtH5htjSCvBJT8bgVDlz6KPJbMRb2PRvh0ghB3Le5twV75Zl1JYgRI5K8EdWbzNJb9vSl-48N3eTn4YEsxqdKnCjyVsRop9hUJtTrk2KW3HpQ2yeS8GY6s6f_aX7vFNb4UJTCc75vT4KdWx2as83v3rngBGZ6xJ7Ec6J8siESnZJGGgNStMycOBeJkINyFebyM-7UphkzRLjHnEyB_OcMKf3x8p2ew2Zc6ZD8sWz5-.png)
+](#s-21)[중고트럭전문매매 백두산트럭](#s-21)[www.bds-truck.com](#s-21)
+[2.5톤에서 5톤 중고화물특장전문, 실매물 자동삭제, 법적품질보증, 사후관리 철저](#s-21)
 
 wZYMnyDJ
 
@@ -385,22 +394,22 @@ wZYMnyDJ
 나무위키는 백과사전이 아니며 검증되지 않았거나, 편향적이거나, 잘못된 서술이 있을 수 있습니다.
 나무위키는 위키위키입니다. 여러분이 직접 문서를 고칠 수 있으며, 다른 사람의 의견을 원할 경우 직접 토론을 발제할 수 있습니다.
 
-[](/RecentChanges)* [패트릭 위즈덤/선수 경력/2025년43초 전](/w/%ED%8C%A8%ED%8A%B8%EB%A6%AD%20%EC%9C%84%EC%A6%88%EB%8D%A4/%EC%84%A0%EC%88%98%20%EA%B2%BD%EB%A0%A5/2025%EB%85%84)
-* [요미우리 자이언츠45초 전](/w/%EC%9A%94%EB%AF%B8%EC%9A%B0%EB%A6%AC%20%EC%9E%90%EC%9D%B4%EC%96%B8%EC%B8%A0)
-* [야나비48초 전](/w/%EC%95%BC%EB%82%98%EB%B9%84)
-* [시리리의 아버지48초 전](/w/%EC%8B%9C%EB%A6%AC%EB%A6%AC%EC%9D%98%20%EC%95%84%EB%B2%84%EC%A7%80)
-* [전민혁49초 전](/w/%EC%A0%84%EB%AF%BC%ED%98%81)
-* [조슈아(레조넌스)51초 전](/w/%EC%A1%B0%EC%8A%88%EC%95%84(%EB%A0%88%EC%A1%B0%EB%84%8C%EC%8A%A4))
-* [한국국제학교 제주캠퍼스52초 전](/w/%ED%95%9C%EA%B5%AD%EA%B5%AD%EC%A0%9C%ED%95%99%EA%B5%90%20%EC%A0%9C%EC%A3%BC%EC%BA%A0%ED%8D%BC%EC%8A%A4)
-* [삼보게임랜드58초 전](/w/%EC%82%BC%EB%B3%B4%EA%B2%8C%EC%9E%84%EB%9E%9C%EB%93%9C)
-* [푸른 뇌정 건볼트 시리즈/스킬1분 전](/w/%ED%91%B8%EB%A5%B8%20%EB%87%8C%EC%A0%95%20%EA%B1%B4%EB%B3%BC%ED%8A%B8%20%EC%8B%9C%EB%A6%AC%EC%A6%88/%EC%8A%A4%ED%82%AC)
-* [I WANT IT1분 전](/w/I%20WANT%20IT)
+[](/RecentChanges)* [제이윤1분 전](/w/%EC%A0%9C%EC%9D%B4%EC%9C%A4)
+* [오츠시1분 전](/w/%EC%98%A4%EC%B8%A0%EC%8B%9C)
+* [김동민(영어강사)1분 전](/w/%EA%B9%80%EB%8F%99%EB%AF%BC(%EC%98%81%EC%96%B4%EA%B0%95%EC%82%AC))
+* [지역 갈등/아시아/대한민국/소지역주의/수도권1분 전](/w/%EC%A7%80%EC%97%AD%20%EA%B0%88%EB%93%B1/%EC%95%84%EC%8B%9C%EC%95%84/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD/%EC%86%8C%EC%A7%80%EC%97%AD%EC%A3%BC%EC%9D%98/%EC%88%98%EB%8F%84%EA%B6%8C)
+* [히후미(프로듀서)1분 전](/w/%ED%9E%88%ED%9B%84%EB%AF%B8(%ED%94%84%EB%A1%9C%EB%93%80%EC%84%9C))
+* [청보 핀토스/역사1분 전](/w/%EC%B2%AD%EB%B3%B4%20%ED%95%80%ED%86%A0%EC%8A%A4/%EC%97%AD%EC%82%AC)
+* [롯데콘서트홀1분 전](/w/%EB%A1%AF%EB%8D%B0%EC%BD%98%EC%84%9C%ED%8A%B8%ED%99%80)
+* [포수 리드1분 전](/w/%ED%8F%AC%EC%88%98%20%EB%A6%AC%EB%93%9C)
+* [1965년 월드 시리즈1분 전](/w/1965%EB%85%84%20%EC%9B%94%EB%93%9C%20%EC%8B%9C%EB%A6%AC%EC%A6%88)
+* [알렉산데르 이사크1분 전](/w/%EC%95%8C%EB%A0%89%EC%82%B0%EB%8D%B0%EB%A5%B4%20%EC%9D%B4%EC%82%AC%ED%81%AC)
 
-[](#)* ['특혜 반대' 싸늘한 여론…전공의들, 환자단체 찾아 소통 시도(종합)](#)
+[](#)* [돈스파이크, '전과 3범'인데 마약 예방 방송?…"공익 목적 OK" vs "퇴출해야" 갑론을박 [엑's 이슈]](#)
+* ['특혜 반대' 싸늘한 여론…전공의들, 환자단체 찾아 소통 시도(종합)](#)
 * [가평 수색 현장서 실종 10대 추정 시신 발견…유전자 검사중(종합2보)](#)
 * [신정환, '도박 논란' 슈에 분노 "자기도 해놓고…불법·합법을 따져" [엑's 이슈]](#)
 * ["배후에 민희진 있어"…어도어, 뉴진스 '신뢰관계 파탄' 주장 정면 반박 [엑's 현장]](#)
-* [돈스파이크, '전과 3범'인데 마약 예방 방송?…"공익 목적 OK" vs "퇴출해야" 갑론을박 [엑's 이슈]](#)
 [더 보기](#)
 
 [](https://play.google.com/store/apps/details?id=net.umanle.namuwiki)[](https://apps.apple.com/app/id1623510780)
