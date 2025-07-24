@@ -6,11 +6,13 @@
 
 [](#)
 
-[오토노세 카나데](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)
+&nbsp;
+![](/skins/espejo/e52c3a71b2aba22408c3.png)
+
+# [오토노세 카나데](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)
 최근 수정 시각: 2025-07-24 10:23:32
 
-[71
-](/member/star/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)편집 요청편집 요청
+[71](/member/star/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)편집 요청편집 요청
 
 편집 권한이 부족합니다. 로그인된 사용자(이)여야 합니다. 해당 문서의 [ACL 탭](/acl/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)을 확인하시기 바랍니다.
 
@@ -26,381 +28,216 @@
 * [hololive/소속 크리에이터](/w/%EB%B6%84%EB%A5%98:hololive/%EC%86%8C%EC%86%8D%20%ED%81%AC%EB%A6%AC%EC%97%90%EC%9D%B4%ED%84%B0)
 [더 보기](#)
 
-[![Hololive 프로덕션 로고](//i.namu.wiki/i/pss7kJ5c5lJ1E6u2TTGkSTvuNznhqOJ9cPK9U4eKr7GvCqB97L1JqJ0hxQI2NdKfaXlF5fkSy0zXxH1geZ3g8t6KMr8q-ej_nbuXGR94Lmikqr8aPE2yiB5Jt68wzO9c9Es4GAfPJI-Rdn8w7Nq0nA.svg)
-소속 멤버
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84)
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+[![Hololive 프로덕션 로고](//i.namu.wiki/i/pss7kJ5c5lJ1E6u2TTGkSTvuNznhqOJ9cPK9U4eKr7GvCqB97L1JqJ0hxQI2NdKfaXlF5fkSy0zXxH1geZ3g8t6KMr8q-ej_nbuXGR94Lmikqr8aPE2yiB5Jt68wzO9c9Es4GAfPJI-Rdn8w7Nq0nA.svg)소속 멤버](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84)
 hololive JP
-| [**0기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#0%EA%B8%B0%EC%83%9D)[토키노 소라
-](/w/%ED%86%A0%ED%82%A4%EB%85%B8%20%EC%86%8C%EB%9D%BC)
-[로보코 씨
-](/w/%EB%A1%9C%EB%B3%B4%EC%BD%94%20%EC%94%A8)
-[AZKi
-](/w/AZKi)
-[사쿠라 미코
-](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)
-[호시마치 스이세이
-](/w/%ED%98%B8%EC%8B%9C%EB%A7%88%EC%B9%98%20%EC%8A%A4%EC%9D%B4%EC%84%B8%EC%9D%B4) |
-|---|
-| [**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#1%EA%B8%B0%EC%83%9D)[아키 로젠탈
-](/w/%EC%95%84%ED%82%A4%20%EB%A1%9C%EC%A0%A0%ED%83%88)
-[아카이 하아토
-](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)
-[시라카미 후부키
-](/w/%EC%8B%9C%EB%9D%BC%EC%B9%B4%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
-[나츠이로 마츠리
-](/w/%EB%82%98%EC%B8%A0%EC%9D%B4%EB%A1%9C%20%EB%A7%88%EC%B8%A0%EB%A6%AC) |
-| [**2기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#2%EA%B8%B0%EC%83%9D)[나키리 아야메
-](/w/%EB%82%98%ED%82%A4%EB%A6%AC%20%EC%95%84%EC%95%BC%EB%A9%94)
-[유즈키 초코
-](/w/%EC%9C%A0%EC%A6%88%ED%82%A4%20%EC%B4%88%EC%BD%94)
-[오오조라 스바루
-](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)
-[【졸업생】
-미나토 아쿠아
-](/w/%EB%AF%B8%EB%82%98%ED%86%A0%20%EC%95%84%EC%BF%A0%EC%95%84)
-[【졸업생】
-무라사키 시온
-](/w/%EB%AC%B4%EB%9D%BC%EC%82%AC%ED%82%A4%20%EC%8B%9C%EC%98%A8) |
-| [**hololive 게이머즈**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20%EA%B2%8C%EC%9D%B4%EB%A8%B8%EC%A6%88)[시라카미 후부키
-](/w/%EC%8B%9C%EB%9D%BC%EC%B9%B4%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
-[오오카미 미오
-](/w/%EC%98%A4%EC%98%A4%EC%B9%B4%EB%AF%B8%20%EB%AF%B8%EC%98%A4)
-[네코마타 오카유
-](/w/%EB%84%A4%EC%BD%94%EB%A7%88%ED%83%80%20%EC%98%A4%EC%B9%B4%EC%9C%A0)
-[이누가미 코로네
-](/w/%EC%9D%B4%EB%88%84%EA%B0%80%EB%AF%B8%20%EC%BD%94%EB%A1%9C%EB%84%A4) |
-| [**3기생 - Hololive Fantasy**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20Hololive%20Fantasy)[우사다 페코라
-](/w/%EC%9A%B0%EC%82%AC%EB%8B%A4%20%ED%8E%98%EC%BD%94%EB%9D%BC)
-[시라누이 후레아
-](/w/%EC%8B%9C%EB%9D%BC%EB%88%84%EC%9D%B4%20%ED%9B%84%EB%A0%88%EC%95%84)
-[시로가네 노엘
-](/w/%EC%8B%9C%EB%A1%9C%EA%B0%80%EB%84%A4%20%EB%85%B8%EC%97%98)
-[호쇼 마린
-](/w/%ED%98%B8%EC%87%BC%20%EB%A7%88%EB%A6%B0) |
-| [**4기생 - holoForce**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#4%EA%B8%B0%EC%83%9D%20-%20holoForce)[아마네 카나타
-](/w/%EC%95%84%EB%A7%88%EB%84%A4%20%EC%B9%B4%EB%82%98%ED%83%80)
-[츠노마키 와타메
-](/w/%EC%B8%A0%EB%85%B8%EB%A7%88%ED%82%A4%20%EC%99%80%ED%83%80%EB%A9%94)
-[토코야미 토와
-](/w/%ED%86%A0%EC%BD%94%EC%95%BC%EB%AF%B8%20%ED%86%A0%EC%99%80)
-[히메모리 루나
-](/w/%ED%9E%88%EB%A9%94%EB%AA%A8%EB%A6%AC%20%EB%A3%A8%EB%82%98)
-[【졸업생】
-키류 코코
-](/w/%ED%82%A4%EB%A5%98%20%EC%BD%94%EC%BD%94) |
-| [**5기생 - holoFive, 네포라보**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#5%EA%B8%B0%EC%83%9D%20-%20holoFive%2C%20%EB%84%A4%ED%8F%AC%EB%9D%BC%EB%B3%B4)[유키하나 라미
-](/w/%EC%9C%A0%ED%82%A4%ED%95%98%EB%82%98%20%EB%9D%BC%EB%AF%B8)
-[모모스즈 네네
-](/w/%EB%AA%A8%EB%AA%A8%EC%8A%A4%EC%A6%88%20%EB%84%A4%EB%84%A4)
-[시시로 보탄
-](/w/%EC%8B%9C%EC%8B%9C%EB%A1%9C%20%EB%B3%B4%ED%83%84)
-[오마루 폴카
-](/w/%EC%98%A4%EB%A7%88%EB%A3%A8%20%ED%8F%B4%EC%B9%B4) |
-| [**6기생 - 비밀 결사 holoX**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#6%EA%B8%B0%EC%83%9D%20-%20%EB%B9%84%EB%B0%80%20%EA%B2%B0%EC%82%AC%20holoX)[라플라스 다크니스
-](/w/%EB%9D%BC%ED%94%8C%EB%9D%BC%EC%8A%A4%20%EB%8B%A4%ED%81%AC%EB%8B%88%EC%8A%A4)
-[타카네 루이
-](/w/%ED%83%80%EC%B9%B4%EB%84%A4%20%EB%A3%A8%EC%9D%B4)
-[하쿠이 코요리
-](/w/%ED%95%98%EC%BF%A0%EC%9D%B4%20%EC%BD%94%EC%9A%94%EB%A6%AC)
-[카자마 이로하
-](/w/%EC%B9%B4%EC%9E%90%EB%A7%88%20%EC%9D%B4%EB%A1%9C%ED%95%98)
-[【방송 활동 종료】
-사카마타 클로에
-](/w/%EC%82%AC%EC%B9%B4%EB%A7%88%ED%83%80%20%ED%81%B4%EB%A1%9C%EC%97%90) |
+| 0기생토키노 소라로보코 씨AZKi사쿠라 미코호시마치 스이세이 |
+| 1기생아키 로젠탈아카이 하아토시라카미 후부키나츠이로 마츠리 |
+| 2기생나키리 아야메유즈키 초코오오조라 스바루【졸업생】미나토 아쿠아【졸업생】무라사키 시온 |
+| hololive 게이머즈시라카미 후부키오오카미 미오네코마타 오카유이누가미 코로네 |
+| 3기생 - Hololive Fantasy우사다 페코라시라누이 후레아시로가네 노엘호쇼 마린 |
+| 4기생 - holoForce아마네 카나타츠노마키 와타메토코야미 토와히메모리 루나【졸업생】키류 코코 |
+| 5기생 - holoFive, 네포라보유키하나 라미모모스즈 네네시시로 보탄오마루 폴카 |
+| 6기생 - 비밀 결사 holoX라플라스 다크니스타카네 루이하쿠이 코요리카자마 이로하【방송 활동 종료】사카마타 클로에 |
 
 hololive ID
-| [**1기생 - AREA15**
-](/w/hololive%20INDONESIA#1%EA%B8%B0%EC%83%9D%20-%20AREA15)[아윤다 리스
-](/w/%EC%95%84%EC%9C%A4%EB%8B%A4%20%EB%A6%AC%EC%8A%A4)
-[무나 호시노바
-](/w/%EB%AC%B4%EB%82%98%20%ED%98%B8%EC%8B%9C%EB%85%B8%EB%B0%94)
-[아이라니 이오피프틴
-](/w/%EC%95%84%EC%9D%B4%EB%9D%BC%EB%8B%88%20%EC%9D%B4%EC%98%A4%ED%94%BC%ED%94%84%ED%8B%B4) |
-|---|
-| [**2기생 - HOLORO**
-](/w/hololive%20INDONESIA#2%EA%B8%B0%EC%83%9D%20-%20HOLORO)[쿠레이지 올리
-](/w/%EC%BF%A0%EB%A0%88%EC%9D%B4%EC%A7%80%20%EC%98%AC%EB%A6%AC)
-[아냐 멜핏사
-](/w/%EC%95%84%EB%83%90%20%EB%A9%9C%ED%95%8F%EC%82%AC)
-[파볼리아 레이네
-](/w/%ED%8C%8C%EB%B3%BC%EB%A6%AC%EC%95%84%20%EB%A0%88%EC%9D%B4%EB%84%A4) |
-| [**3기생 - HoloH3RO**
-](/w/hololive%20INDONESIA#3%EA%B8%B0%EC%83%9D%20-%20HoloH3RO)[베스티아 제타
-](/w/%EB%B2%A0%EC%8A%A4%ED%8B%B0%EC%95%84%20%EC%A0%9C%ED%83%80)
-[카엘라 코발스키아
-](/w/%EC%B9%B4%EC%97%98%EB%9D%BC%20%EC%BD%94%EB%B0%9C%EC%8A%A4%ED%82%A4%EC%95%84)
-[코보 카나에루
-](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8) |
+| 1기생 - AREA15아윤다 리스무나 호시노바아이라니 이오피프틴 |
+| 2기생 - HOLORO쿠레이지 올리아냐 멜핏사파볼리아 레이네 |
+| 3기생 - HoloH3RO베스티아 제타카엘라 코발스키아코보 카나에루 |
 
 hololive EN
-| [**Myth**
-](/w/hololive%20ENGLISH#Myth)[모리 칼리오페
-](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98)
-[타카나시 키아라
-](/w/%ED%83%80%EC%B9%B4%EB%82%98%EC%8B%9C%20%ED%82%A4%EC%95%84%EB%9D%BC)
-[니노마에 이나니스
-](/w/%EB%8B%88%EB%85%B8%EB%A7%88%EC%97%90%20%EC%9D%B4%EB%82%98%EB%8B%88%EC%8A%A4)
-[【방송 활동 종료】
-왓슨 아멜리아
-](/w/%EC%99%93%EC%8A%A8%20%EC%95%84%EB%A9%9C%EB%A6%AC%EC%95%84)
-[【졸업생】
-가우르 구라
-](/w/%EA%B0%80%EC%9A%B0%EB%A5%B4%20%EA%B5%AC%EB%9D%BC) |
-|---|
-| [**Council**
-](/w/hololive%20ENGLISH#Council)[【졸업생】
-츠쿠모 사나
-](/w/%EC%B8%A0%EC%BF%A0%EB%AA%A8%20%EC%82%AC%EB%82%98) |
-| [**Promise**
-](/w/hololive%20ENGLISH#Promise)[IRyS
-](/w/IRyS)
-[오로 크로니
-](/w/%EC%98%A4%EB%A1%9C%20%ED%81%AC%EB%A1%9C%EB%8B%88)
-[하코스 벨즈
-](/w/%ED%95%98%EC%BD%94%EC%8A%A4%20%EB%B2%A8%EC%A6%88)
-[【졸업생】
-세레스 파우나
-](/w/%EC%84%B8%EB%A0%88%EC%8A%A4%20%ED%8C%8C%EC%9A%B0%EB%82%98)
-[【졸업생】
-나나시 무메이
-](/w/%EB%82%98%EB%82%98%EC%8B%9C%20%EB%AC%B4%EB%A9%94%EC%9D%B4) |
-| [**Advent**
-](/w/hololive%20ENGLISH#Advent)[시오리 노벨라
-](/w/%EC%8B%9C%EC%98%A4%EB%A6%AC%20%EB%85%B8%EB%B2%A8%EB%9D%BC)
-[코세키 비쥬
-](/w/%EC%BD%94%EC%84%B8%ED%82%A4%20%EB%B9%84%EC%A5%AC)
-[네리사
-레이븐​크로프트
-](/w/%EB%84%A4%EB%A6%AC%EC%82%AC%20%EB%A0%88%EC%9D%B4%EB%B8%90%ED%81%AC%EB%A1%9C%ED%94%84%ED%8A%B8)
-[후와와 어비스가드
-](/w/%ED%9B%84%EC%99%80%EC%99%80%20%EC%96%B4%EB%B9%84%EC%8A%A4%EA%B0%80%EB%93%9C)
-[모코코 어비스가드
-](/w/%EB%AA%A8%EC%BD%94%EC%BD%94%20%EC%96%B4%EB%B9%84%EC%8A%A4%EA%B0%80%EB%93%9C) |
-| [**Justice**
-](/w/hololive%20ENGLISH#Justice)[엘리자베스 로즈 블러드플레임
-](/w/%EC%97%98%EB%A6%AC%EC%9E%90%EB%B2%A0%EC%8A%A4%20%EB%A1%9C%EC%A6%88%20%EB%B8%94%EB%9F%AC%EB%93%9C%ED%94%8C%EB%A0%88%EC%9E%84)
-[지지 무린
-](/w/%EC%A7%80%EC%A7%80%20%EB%AC%B4%EB%A6%B0)
-[세실리아 이머그린
-](/w/%EC%84%B8%EC%8B%A4%EB%A6%AC%EC%95%84%20%EC%9D%B4%EB%A8%B8%EA%B7%B8%EB%A6%B0)
-[라오라 판테라
-](/w/%EB%9D%BC%EC%98%A4%EB%9D%BC%20%ED%8C%90%ED%85%8C%EB%9D%BC) |
+| Myth모리 칼리오페타카나시 키아라니노마에 이나니스【방송 활동 종료】왓슨 아멜리아【졸업생】가우르 구라 |
+| Council【졸업생】츠쿠모 사나 |
+| PromiseIRyS오로 크로니하코스 벨즈【졸업생】세레스 파우나【졸업생】나나시 무메이 |
+| Advent시오리 노벨라코세키 비쥬네리사레이븐​크로프트후와와 어비스가드모코코 어비스가드 |
+| Justice엘리자베스 로즈 블러드플레임지지 무린세실리아 이머그린라오라 판테라 |
 
 hololive DEV_IS
-| [**ReGLOSS**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ReGLOSS)[히오도시 아오
-](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4)
-[오토노세 카나데
-](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)
-[이치조 리리카
-](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)
-[주우후테이 라덴
-](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4)
-[토도로키 하지메
-](/w/%ED%86%A0%EB%8F%84%EB%A1%9C%ED%82%A4%20%ED%95%98%EC%A7%80%EB%A9%94) |
-|---|
-| [**FLOW GLOW**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#FLOW%20GLOW)[이사키 리오나
-](/w/%EC%9D%B4%EC%82%AC%ED%82%A4%20%EB%A6%AC%EC%98%A4%EB%82%98)
-[코가네이 니코
-](/w/%EC%BD%94%EA%B0%80%EB%84%A4%EC%9D%B4%20%EB%8B%88%EC%BD%94)
-[미즈미야 스우
-](/w/%EB%AF%B8%EC%A6%88%EB%AF%B8%EC%95%BC%20%EC%8A%A4%EC%9A%B0)
-[린도 치하야
-](/w/%EB%A6%B0%EB%8F%84%20%EC%B9%98%ED%95%98%EC%95%BC)
-[키키라라 비비
-](/w/%ED%82%A4%ED%82%A4%EB%9D%BC%EB%9D%BC%20%EB%B9%84%EB%B9%84) |
+| ReGLOSS히오도시 아오오토노세 카나데이치조 리리카주우후테이 라덴토도로키 하지메 |
+| FLOW GLOW이사키 리오나코가네이 니코미즈미야 스우린도 치하야키키라라 비비 |
 
 HOLOSTARS JP
-| [**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#HOLOSTARS%20JP)[하나사키 미야비
-](/w/%ED%95%98%EB%82%98%EC%82%AC%ED%82%A4%20%EB%AF%B8%EC%95%BC%EB%B9%84)
-[카나데 이즈루
-](/w/%EC%B9%B4%EB%82%98%EB%8D%B0%20%EC%9D%B4%EC%A6%88%EB%A3%A8)
-[아르란디스
-](/w/%EC%95%84%EB%A5%B4%EB%9E%80%EB%94%94%EC%8A%A4)
-[릿카
-](/w/%EB%A6%BF%EC%B9%B4(HOLOSTARS))
-[【졸업생】
-카가미 키라
-](/w/%EC%B9%B4%EA%B0%80%EB%AF%B8%20%ED%82%A4%EB%9D%BC) |
-|---|
-| [**2기생 - SunTempo**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#2%EA%B8%B0%EC%83%9D%20-%20SunTempo)[아스텔 레다
-](/w/%EC%95%84%EC%8A%A4%ED%85%94%20%EB%A0%88%EB%8B%A4)
-[키시도 텐마
-](/w/%ED%82%A4%EC%8B%9C%EB%8F%84%20%ED%85%90%EB%A7%88)
-[유코쿠 로베루
-](/w/%EC%9C%A0%EC%BD%94%EC%BF%A0%20%EB%A1%9C%EB%B2%A0%EB%A3%A8) |
-| [**3기생 - MaFia**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20MaFia)[카게야마 시엔
-](/w/%EC%B9%B4%EA%B2%8C%EC%95%BC%EB%A7%88%20%EC%8B%9C%EC%97%94)
-[아라가미 오가
-](/w/%EC%95%84%EB%9D%BC%EA%B0%80%EB%AF%B8%20%EC%98%A4%EA%B0%80) |
-| [**UPROAR!!**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#UPROAR!!)[야토가미 후마
-](/w/%EC%95%BC%ED%86%A0%EA%B0%80%EB%AF%B8%20%ED%9B%84%EB%A7%88)
-[우츠기 우유
-](/w/%EC%9A%B0%EC%B8%A0%EA%B8%B0%20%EC%9A%B0%EC%9C%A0)
-[미나세 리오
-](/w/%EB%AF%B8%EB%82%98%EC%84%B8%20%EB%A6%AC%EC%98%A4) |
+| 1기생하나사키 미야비카나데 이즈루아르란디스릿카【졸업생】카가미 키라 |
+| 2기생 - SunTempo아스텔 레다키시도 텐마유코쿠 로베루 |
+| 3기생 - MaFia카게야마 시엔아라가미 오가 |
+| UPROAR!!야토가미 후마우츠기 우유미나세 리오 |
 
 HOLOSTARS EN
-| [**TEMPUS**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#TEMPUS)[리지스 알테어
-](/w/%EB%A6%AC%EC%A7%80%EC%8A%A4%20%EC%95%8C%ED%85%8C%EC%96%B4)
-[악셀 시리오스
-](/w/%EC%95%85%EC%85%80%20%EC%8B%9C%EB%A6%AC%EC%98%A4%EC%8A%A4)
-[가비스 베텔
-](/w/%EA%B0%80%EB%B9%84%EC%8A%A4%20%EB%B2%A0%ED%85%94)
-[마키나 X 플레온
-](/w/%EB%A7%88%ED%82%A4%EB%82%98%20X%20%ED%94%8C%EB%A0%88%EC%98%A8)
-[반조인 핫카
-](/w/%EB%B0%98%EC%A1%B0%EC%9D%B8%20%ED%95%AB%EC%B9%B4) [조스이지 신리
-](/w/%EC%A1%B0%EC%8A%A4%EC%9D%B4%EC%A7%80%20%EC%8B%A0%EB%A6%AC)
-[【졸업생】
-매그니 데즈몬드
-](/w/%EB%A7%A4%EA%B7%B8%EB%8B%88%20%EB%8D%B0%EC%A6%88%EB%AA%AC%EB%93%9C)
-[【졸업생】
-누아르 베스퍼
-](/w/%EB%88%84%EC%95%84%EB%A5%B4%20%EB%B2%A0%EC%8A%A4%ED%8D%BC) |
-|---|
-| [**ARMIS**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ARMIS)[쥐라르드 T 렉스포드
-](/w/%EC%A5%90%EB%9D%BC%EB%A5%B4%EB%93%9C%20T%20%EB%A0%89%EC%8A%A4%ED%8F%AC%EB%93%9C)
-[골드불릿
-](/w/%EA%B3%A8%EB%93%9C%EB%B6%88%EB%A6%BF)
-[옥타비오
-](/w/%EC%98%A5%ED%83%80%EB%B9%84%EC%98%A4(HOLOSTARS))
-[크림즌 루즈
-](/w/%ED%81%AC%EB%A6%BC%EC%A6%8C%20%EB%A3%A8%EC%A6%88) |
+| TEMPUS리지스 알테어악셀 시리오스가비스 베텔마키나 X 플레온반조인 핫카조스이지 신리【졸업생】매그니 데즈몬드【졸업생】누아르 베스퍼 |
+| ARMIS쥐라르드 T 렉스포드골드불릿옥타비오크림즌 루즈 |
 
 hololive AN
-| **홀로라이브 아나운서**
-[하루사키 노도카
-](/w/%ED%95%98%EB%A3%A8%EC%82%AC%ED%82%A4%20%EB%85%B8%EB%8F%84%EC%B9%B4) |
-|---|
+| 홀로라이브 아나운서하루사키 노도카 |
 
 Office Staff
-| [**사무소 스태프**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%8A%A4%ED%83%9C%ED%94%84)[【퇴직】
-친구A
-](/w/%EC%B9%9C%EA%B5%ACA) |
-|---|
+| 사무소 스태프【퇴직】친구A |
 
 이전 소속 멤버
-| **hololive JP** |
-|---|
-| [**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#1%EA%B8%B0%EC%83%9D)[【계약 해지】
-요조라 멜
-](/w/%EC%9A%94%EC%A1%B0%EB%9D%BC%20%EB%A9%9C)
-[**3기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D)[【계약 해지】
-우루하 루시아
-](/w/%EC%9A%B0%EB%A3%A8%ED%95%98%20%EB%A3%A8%EC%8B%9C%EC%95%84)
-[**5기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#5%EA%B8%B0%EC%83%9D)[【졸업생】
-마노 알로에
-](/w/%EB%A7%88%EB%85%B8%20%EC%95%8C%EB%A1%9C%EC%97%90) |
-| **hololive CN** |
-| [**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-요기리
-](/w/%EC%9A%94%EA%B8%B0%EB%A6%AC)
-[**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-Civia
-](/w/Civia)
-[**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-스페이드 에코
-](/w/%EC%8A%A4%ED%8E%98%EC%9D%B4%EB%93%9C%20%EC%97%90%EC%BD%94) [**2기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-로사린
-](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D)
-[**2기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-도리스
-](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D)
-[**2기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[【졸업생】
-아티아
-](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D) |
-| **HOLOSTARS JP** |
-| [**1기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#HOLOSTARS%20JP)[【활동 종료】
-야쿠시지 스자쿠
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#%EC%95%BC%EC%BF%A0%EC%8B%9C%EC%A7%80%20%EC%8A%A4%EC%9E%90%EC%BF%A0)
-[**3기생**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20MaFia)[【계약 종료】
-츠키시타 카오루
-](/w/%EC%B8%A0%ED%82%A4%EC%8B%9C%ED%83%80%20%EC%B9%B4%EC%98%A4%EB%A3%A8)
-[**UPROAR!!**
-](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#UPROAR!!)[【계약 해지】
-히자키 감마
-](/w/%ED%9E%88%EC%9E%90%ED%82%A4%20%EA%B0%90%EB%A7%88) |
+| hololive JP |
+| 1기생【계약 해지】요조라 멜3기생【계약 해지】우루하 루시아5기생【졸업생】마노 알로에 |
+| hololive CN |
+| 1기생【졸업생】요기리1기생【졸업생】Civia1기생【졸업생】스페이드 에코2기생【졸업생】로사린2기생【졸업생】도리스2기생【졸업생】아티아 |
+| HOLOSTARS JP |
+| 1기생【활동 종료】야쿠시지 스자쿠3기생【계약 종료】츠키시타 카오루UPROAR!!【계약 해지】히자키 감마 |
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| ReGLOSS 디스코그래피 [ 앨범 ]1st Album |  |  |  |
+|  |  |  |  |
+| ReGLOSS2024. 11. 06. |  |  |  |
 
 [ 싱글 및 EP ]
 | 1st Single | 2nd Single | 3rd Single | 4th Single |
-|---|---|---|---|
-| [](/w/%E7%9E%AC%E9%96%93%E3%83%8F%E3%83%BC%E3%83%88%E3%83%93%E3%83%BC%E3%83%88) | [](/w/%E3%82%B7%E3%83%B3%E3%83%A1%E3%83%88%E3%83%AA%E3%83%BC) | [](/w/%E6%B3%A1%E6%B2%AB%E3%83%A1%E3%82%A4%E3%83%93%E3%83%BC) | [](/w/%E3%83%95%E3%82%A3%E3%83%BC%E3%83%AA%E3%83%B3%E3%82%B0%E3%83%A9%E3%83%87%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3) |
-| [瞬間ハートビート](/w/%E7%9E%AC%E9%96%93%E3%83%8F%E3%83%BC%E3%83%88%E3%83%93%E3%83%BC%E3%83%88)
-2023. 9. 4. | [シンメトリー](/w/%E3%82%B7%E3%83%B3%E3%83%A1%E3%83%88%E3%83%AA%E3%83%BC)
-2024. 3. 24. | [泡沫メイビー](/w/%E6%B3%A1%E6%B2%AB%E3%83%A1%E3%82%A4%E3%83%93%E3%83%BC) 2024. 8. 10. | [フィーリングラデーション](/w/%E3%83%95%E3%82%A3%E3%83%BC%E3%83%AA%E3%83%B3%E3%82%B0%E3%83%A9%E3%83%87%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3)
-2024. 9. 10. |
+|  |  |  |  |
+| 瞬間ハートビート2023. 9. 4. | シンメトリー2024. 3. 24. | 泡沫メイビー 2024. 8. 10. | フィーリングラデーション2024. 9. 10. |
 | 5th Single | 6th Single |  |  |
-| [](/w/%E3%82%B5%E3%82%AF%E3%83%A9%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5) | [](/w/%E3%83%9F%E3%83%83%E3%83%89%E3%82%B5%E3%83%9E%E3%83%BC%E3%82%B7%E3%83%88%E3%83%A9%E3%82%B9) |  |  |
-| [サクラミラージュ](/w/%E3%82%B5%E3%82%AF%E3%83%A9%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5)
-2025. 3. 10. | [ミッドサマーシトラス](/w/%E3%83%9F%E3%83%83%E3%83%89%E3%82%B5%E3%83%9E%E3%83%BC%E3%82%B7%E3%83%88%E3%83%A9%E3%82%B9)
-2025. 7. 11. |  |  |
+|  |  |  |  |
+| サクラミラージュ2025. 3. 10. | ミッドサマーシトラス2025. 7. 11. |  |  |
 
-| **성별** | 여성 |
-|---|---|
-| **종족** | 인간 |
-| **나이** | 20세 |
-| **생일** | [4월 20일](/w/4%EC%9B%94%2020%EC%9D%BC) |
-| **신장** | 153㎝[[1]](#fn-1) |
-| **MBTI** | [ENTP](/w/ENTP)/[INTP](/w/INTP)[[출처]](#fn-%ec%b6%9c%ec%b2%98) |
-| **국적** | [ 대한민국
-](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3) |
-| **1인칭** | [카나데](/w/3%EC%9D%B8%EC%B9%AD%ED%99%94)(奏), 와타시(私)[[4]](#fn-4) |
-| **소속** | [ReGLOSS](/w/ReGLOSS) |
-| **디자인** | [gomzi](/w/gomzi)[[5]](#fn-5) |
-| **Live 2D** | [おつくえ](https://twitter.com/otsukue) |
-| **데뷔** | [2023년](/w/2023%EB%85%84) [9월 9일](/w/9%EC%9B%94%209%EC%9D%BC)
-+684일째 |
-| **구독자 수** | 71.7만 명[[기준]](#fn-%ea%b8%b0%ec%a4%80) |
-| **팬덤 애칭** | 오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7)
-오마에라 (おまえら)[[8]](#fn-8) |
-| **별명** | 캬나디 (キャナディ)[[9]](#fn-9)
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+| 오토노세 카나데音(おと)乃(の)瀬(せ)奏(かなで) ｜ Otonose Kanade |
+|  |
+| [ 이미지 더 보기 ] |
+| 데이브레이크 |
+
+성별
+여성
+종족
+인간
+나이
+20세
+생일
+[4월 20일](/w/4%EC%9B%94%2020%EC%9D%BC)
+신장
+153㎝[[1]](#fn-1)
+MBTI
+[ENTP](/w/ENTP)/[INTP](/w/INTP)[[출처]](#fn-%ec%b6%9c%ec%b2%98)
+국적
+[![대한민국 국기](//i.namu.wiki/i/C2l0TgY8Mn8pgU9ELRgpj3pWSyt-XokvjFzmUYx01CRm-3qH5G7ANrSSy6MYIg1aHqfXesX_hqM21yh2bpYqN5LeOzQzmGpPl5udd0nsVrlT6QtXAE-EZes86NeLCqpROSgV2a2CABH9VEFYmZGoPQ.svg) 대한민국](/w/%EB%8C%80%ED%95%9C%EB%AF%BC%EA%B5%AD)[[3]](#fn-3)
+1인칭
+[카나데](/w/3%EC%9D%B8%EC%B9%AD%ED%99%94)(奏), 와타시(私)[[4]](#fn-4)
+소속
+[ReGLOSS](/w/ReGLOSS)
+디자인
+[gomzi](/w/gomzi)[[5]](#fn-5)
+Live 2D
+[おつくえ](https://twitter.com/otsukue)
+데뷔
+[2023년](/w/2023%EB%85%84) [9월 9일](/w/9%EC%9B%94%209%EC%9D%BC)
++684일째
+구독자 수
+71.7만 명[[기준]](#fn-%ea%b8%b0%ec%a4%80)
+팬덤 애칭
+오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7)
+오마에라 (おまえら)[[8]](#fn-8)
+별명
+캬나디 (キャナディ)[[9]](#fn-9)
 카나디 (かなでぃ)[[10]](#fn-10)
 카나데소 (奏そ)[이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)[[11]](#fn-11)
 카나두이 (Kanaduy)[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)[[12]](#fn-12)
 카나짱 (かなちゃん)[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)
 오토짱 (おとちゃん)[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)[[13]](#fn-13)
 카난누 (かなんぬ)[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)[[14]](#fn-14)
-연주한국 커뮤니티 한정 |
-| **오시마크** | 🎹✨ |
-| **싸인[[15]](#fn-15)** | [](/jump/aG6kqt78wmW%2BoDwnRr6IOaR5oMoA8cZD2wOElG4FxmEyW44ocb1jrnlVc7m%2FOaLOWy31m78WYJEkHDa20N2Z3g%3D%3D) |
-| **외부 링크** | [](https://www.youtube.com/@OtonoseKanade) | [](https://x.com/otonosekanade) | [](https://hololive.hololivepro.com/talents/otonose-kanade/)| [](https://www.tiktok.com/@otonosekanade_regloss) |
+연주한국 커뮤니티 한정
+오시마크
+🎹✨
+싸인[[15]](#fn-15)
+![오토노세 카나데 싸인](//i.namu.wiki/i/fob9xdatQDHiPiR2JkNmUfm37rfrh0rIcxySHiNERGpOL5vVg0KB3CbmHN82LyIJIV4MNyq4pptTCicyFQoO1g.webp)
+[](/jump/JArseHWXLa26CAWYCugxE4sssEJ1U2UTk0pwKf7uWGlP336GQscAUqbJX5JJRNsQPj1YP8duW0kgy3ZkeUhbHg%3D%3D)
+외부 링크
+[![유튜브 아이콘](//i.namu.wiki/i/EdY28NAkdZreiAXZbZHXJrcBs5tnwTSbfi4XRQrPPRXKPI_IZxhytzNTv12CkLH7RkZv-j_Kbs-kZerMQXQSOSwpjHucVHU2mIDUz4yNiOaXOgcxvf-XwPtsWzPBnLJiTZqIaSMyXxCFBZFcXvqXmw.svg)](https://www.youtube.com/@OtonoseKanade) | [![X Corp 아이콘(블랙)](//i.namu.wiki/i/4ewGNUKaleg2Li7sFUcvG9M4kLZ9-NzOOEiDZodR76rIwpebnnIYs6-WrUy3TBlbfUJohuxzAjdFin6lfzu6sGQOdWp7Lk49S0zlIV6JG3HoC61-AkDa8E8-x-8Zr1oNrOcGAAjqvgrj3GSg3L3KyA.svg)](https://x.com/otonosekanade) | [![Hololive 아이콘](//i.namu.wiki/i/-wxiknkpnT9IWv0a11cYOv0OSajfmj4CpbGYQnalFx2JpXMu69G6jVDE-x13tHD8-LKFCXVIpl7sBM5DkInuHg.svg)](https://hololive.hololivepro.com/talents/otonose-kanade/)| [![틱톡 아이콘](//i.namu.wiki/i/YgnlsBhi1tV6SQwcLx9LgE_7pk8OnRtx3vGjqzod1UBh6gPyvpQL2hMom0mtqH6H2hRsIh7y2Tubq3cvtITHcMTrRpVu_Fpx9yA_E6ZWYYeyv4pWP3BOkPq3v8uHCOM7fSKjRG_Kf7kJIs3ZS_mWLA.svg)](https://www.tiktok.com/@otonosekanade_regloss)
 
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
 [1](#s-1). 개요[2](#s-2). 캐릭터 시트[3](#s-3). 스트리밍 규칙[4](#s-4). [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[5](#s-5). [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[6](#s-6). [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[7](#s-7). 관련 밈[8](#s-8). 다른 유튜버와의 관계[8.1](#s-8.1). DEV_IS[8.2](#s-8.2). JP[8.3](#s-8.3). ID[8.4](#s-8.4). EN[8.5](#s-8.5). 홀로라이브 이외
 [9](#s-9). 여담
 
-[1.](#toc) 개요[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=1)
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [1.](#toc) 개요[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=1)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
 
 |  |
-|---|
-| 오토노세 카나데의 데뷔 기념 커버곡 《[이름 없는 괴물](/w/%EC%9D%B4%EB%A6%84%20%EC%97%86%EB%8A%94%20%EA%B4%B4%EB%AC%BC(EGOIST))》 |
+| 오토노세 카나데의 데뷔 기념 커버곡 《이름 없는 괴물》 |
 
 ここが私のステージだから！
 여기가 나의 스테이지니까!
@@ -415,31 +252,55 @@ Civia
 ---
 [홀로라이브 공식 소개](https://hololive.hololivepro.com/talents/otonose-kanade/)[[16]](#fn-16)
 
-| 인사말 |  |  |
-|---|---|---|
-| 스트리머 측 | 방송 시작 | ドレミファソラシド〜♪ホロライブDEV_IS所属、ReGLOSSの音楽家の卵！音乃瀬奏です！[[17]](#fn-17)
-[[한국어]](#fn-%ed%95%9c%ea%b5%ad%ec%96%b4)[[19]](#fn-19) |
-| 방송 종료 | またね〜〜〜〜〜〜〜〜ガハw |  |
+| 인사말 |
+| 스트리머 측 | 방송 시작 | ドレミファソラシド〜♪ホロライブDEV_IS所属、ReGLOSSの音楽家の卵！音乃瀬奏です！[17][한국어][19] |
+| 방송 종료 | またね〜〜〜〜〜〜〜〜ガハw |
 | 리스너 측 | 대기 중 | かなでスタンバイ🎹✨ |
-| 방송 시작 | こんのせ |  |
-| 방송 종료 | おつのせ |  |
+| 방송 시작 | こんのせ |
+| 방송 종료 | おつのせ |
 
 [hololive 프로덕션](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98) 소속의 [버츄얼 유튜버](/w/%EB%B2%84%EC%B8%84%EC%96%BC%20%EC%9C%A0%ED%8A%9C%EB%B2%84). 2023년 9월 9일 [hololive DEV_IS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20DEV_IS) 소속 그룹인 [ReGLOSS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ReGLOSS)로 데뷔했다.
 
 [ 구독자 증가 추이 | 펼치기 · 접기 ] 
-| 기준 날짜 | 구독자 수 | 전월 대비[[20]](#fn-20) |
-|---|---|---|
-| 2023년 9월 9일 | 82,300명 | 데뷔 당일[[21]](#fn-21) |
-| 2023년 10월 | 178,000명 | +9.6만 | +116.2% |
-| 2023년 11월 | 209,000명 | +3.1만 | +17.4% |
-| 2023년 12월 | 235,000명 | +2.6만 | +12.4% |
-| 2024년 1월 | 260,000명 | +2.5만 | +10.6% |
-| 2024년 2월 | 292,000명 | +3.2만 | +12.3% |
-| 2024년 3월 | 312,000명 | +2.0만 | +6.8% |
-| 2024년 4월 | 350,000명 | +3.8만 | +12.2% |
+|  | 오토노세 카나데구독자 수 변화 추이 일람 |
+
+기준 날짜
+구독자 수
+전월 대비[[20]](#fn-20)
+2023년 9월 9일
+82,300명
+
+데뷔 당일[[21]](#fn-21)
+2023년 10월
+178,000명
+
++9.6만 | +116.2%
+2023년 11월
+209,000명
+
++3.1만 | +17.4%
+2023년 12월
+235,000명
+
++2.6만 | +12.4%
+2024년 1월
+260,000명
+
++2.5만 | +10.6%
+2024년 2월
+292,000명
+
++3.2만 | +12.3%
+2024년 3월
+312,000명
+
++2.0만 | +6.8%
+2024년 4월
+350,000명
+
++3.8만 | +12.2%
 
 | 날짜 | 구독자 수 |
-|---|---|
 | 2023년 9월 10일 | 10만 명 달성 |
 | 2023년 10월 20일 | 20만 명 달성 |
 | 2024년 2월 14일 | 30만 명 달성 |
@@ -448,38 +309,208 @@ Civia
 | 2025년 1월 27일 | 60만 명 달성 |
 | 2025년 6월 7일 | 70만 명 달성 |
 
-[2.](#toc) 캐릭터 시트[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=2)
+&nbsp;
 
-| [](/jump/jHZuMgWoYWbkAIZ0LgtDPvzfH4dIkkqW7idXaUX7J9Hx%2By9YHpKdmZb%2FoQ6l4UGc) |
-|---|
-| **캐릭터 삼면도** |
+&nbsp;
 
-| [](/jump/jHZuMgWoYWbkAIZ0LgtDPlC7O7Cad0zhcIoYuORNVaeI49Btk567lfUdICN4qqxNUmFtPZ1dB4OsmEZXTgHJYA%3D%3D) |
-|---|
-| **홀로나츠 삼면도** |
+&nbsp;
 
-[3.](#toc) 스트리밍 규칙[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=3)
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
 
-[4.](#toc) [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=4)
+## [2.](#toc) 캐릭터 시트[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=2)
 
-![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-자세한 내용은 [오토노세 카나데/성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95) 문서를 참고하십시오.
+&nbsp;
 
-[5.](#toc) [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=5)
+&nbsp;
 
-![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-자세한 내용은 [오토노세 카나데/음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85) 문서를 참고하십시오.
+&nbsp;
 
-[6.](#toc) [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=6)
-
-![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-자세한 내용은 [오토노세 카나데/방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94) 문서를 참고하십시오.
-
-[7.](#toc) 관련 밈[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=7)
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
 
 |  |
-|---|
-| 카나데의 캐릭터성이 돋보이는 **공식** [음MAD](/w/%EC%9D%8CMAD) 영상 |
+| 캐릭터 삼면도 |
+
+|  |
+| 홀로나츠 삼면도 |
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [3.](#toc) 스트리밍 규칙[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=3)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [4.](#toc) [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=4)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
+&nbsp; 자세한 내용은 [오토노세 카나데/성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95) 문서를 참고하십시오.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [5.](#toc) [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=5)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
+&nbsp; 자세한 내용은 [오토노세 카나데/음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85) 문서를 참고하십시오.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [6.](#toc) [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=6)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
+&nbsp; 자세한 내용은 [오토노세 카나데/방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94) 문서를 참고하십시오.
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [7.](#toc) 관련 밈[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=7)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+|  |
+| 카나데의 캐릭터성이 돋보이는 공식 음MAD 영상 |
 
 * 병아리: 시초는 9월 11일 잡담 방송 때 [기억력이 안 좋다고 했다가](https://www.youtube.com/live/kA4AHOym1V8?t=2578), 채팅의 "닭"을 언급하면서이다. 바로 다음 날인 9월 12일 노래 방송에서 매니저가 "카나데 씨는 [병아리 같네요](https://youtu.be/R7UsMjQdDlU)"라고 한 일화가 알려졌다. 마침 이미지 색상도 [노란색](/w/%EB%85%B8%EB%9E%80%EC%83%89) · [빨간색](/w/%EB%B9%A8%EA%B0%84%EC%83%89)이고, 공식 프로필과 인사말에도 "음악가의 [달걀](/w/%EB%8B%AC%EA%B1%80)"[[22]](#fn-22)이 있으며, 평소 천진난만한 아이같은 행동과도 일치하여 [닭](/w/%EB%8B%AD) 내지 [병아리](/w/%EB%B3%91%EC%95%84%EB%A6%AC)라는 인상을 굳혔다. 이전에는 닭 이모지(🐔)와 병아리 이모지(🐤)가 공존하였으나, [닭 선배](/w/%ED%83%80%EC%B9%B4%EB%82%98%EC%8B%9C%20%ED%82%A4%EC%95%84%EB%9D%BC)와 겹친다는 이유로 사용을 자제해 달라는 요청이 있었다. 그래서 보통은 병아리 이모지가 보이고, 가끔 심각한 상식 부족이 보일 때 PON 대신에 닭 이모지가 도배됐었으나 지금은 쓰이지 않는다. 다만 이모지가 쓰이지 않을 뿐이지 이젠 병아리 자체가 카나데의 상징이 됬다.
 
@@ -529,12 +560,71 @@ Civia
 연주: 이름 [카나데](/w/%EC%B9%B4%EB%82%98%EB%8D%B0)([奏](/w/%E5%A5%8F))가 일본어 "연주하다(奏でる)"에서 유래된 것이라 번역기를 쓰면 [연주](/w/%EC%97%B0%EC%A3%BC)가 나오는데, 마침 한국에서 흔한 여성 이름인지라 별명으로 자연스럽게 자리잡았다. 6기생 [사카마타 클로에](/w/%EC%82%AC%EC%B9%B4%EB%A7%88%ED%83%80%20%ED%81%B4%EB%A1%9C%EC%97%90)가 카나데의 데뷔 방송을 보며 한국어를 가르쳐달라는 [트윗](https://twitter.com/sakamatachloe/status/1700474013791998453)을 하며 장난스럽게 카나데 선배라고 불렀는데, 연주 선배라고 자동 번역된 것이 커뮤니티 각지로 퍼졌고 이게 한국 이름 같아서 입에 착 달라붙다 보니 정착되었다. 성씨인 오토노세에서 '오' 자만 따서 오연주(吳演奏)라고 부르기도 한다.
 * 쌈닭: 위의 병아리와 연계되는 별명으로, 게임에서 경쟁과 싸움을 즐기고 선배([스이세이](/w/%ED%98%B8%EC%8B%9C%EB%A7%88%EC%B9%98%20%EC%8A%A4%EC%9D%B4%EC%84%B8%EC%9D%B4)·[루이](/w/%ED%83%80%EC%B9%B4%EB%84%A4%20%EB%A3%A8%EC%9D%B4)), 동기([아오](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4)) 가릴 것 없이 돌격하는 모습에서 나왔다. 모두가 벌벌 떠는 스이코패스도 두려워하지 않는 미친 전투본능을 가지고 있을 정도. 게임을 많이 접해보지 못하여 처음에는 잘 못하지만, 태생적인 감각 내지는 전투 센스 덕분인지 게임 실력은 물론이고 전투 실력도 꽤 좋다. 호승심이 높기 때문인지 게임을 인내심을 가지고 끈덕지게 잡기도 하며 타 방송인과 콜라보로 게임을 하다가 지면 많이 아쉬워하기도 한다.
 
-[8.](#toc) 다른 유튜버와의 관계[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=8)
+&nbsp;
 
-[8.1.](#toc) DEV_IS[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=9)
+&nbsp;
 
-| **호칭 및 태그 일람** |  |  |  |
-|---|---|---|---|
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [8.](#toc) 다른 유튜버와의 관계[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=8)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+### [8.1.](#toc) DEV_IS[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=9)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 호칭 및 태그 일람 |
+| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
+| ReGLOSS |
+| 히오도시 아오 | 아오 씨(あおさん), 히오도시(火威) | 카나데짱(かなでちゃん) | 아오카나(あおかな) |
+| 이치죠 리리카 | 샤쵸(ｼｬｯﾁｮｳ), 이치죠 리리카(一条莉々華) | 카나데(奏), 카나데소 (奏そ) | 리리나데(りりなで) |
+| 주우후테이 라덴 | 오뎅짱(おでんちゃん)、라덴짱(らでんちゃん) | 캬나디(キャナディ), 카나데(奏) | 나데라데(なでらで) |
+| 토도로키 하지메 | 반쵸(ばんちょう) | 카나데(かなで) | 카나하지(かなはじ) |
+| FLOW GLOW |
+| 이사키 리오나 | 리오나(リオナちゃん), 리오나짱(リオナちゃん) | 카나데 선배(奏先輩) |  |
+| 코가네이 니코 | 니코땅(ニコたん) | 카나데 선배(奏先輩) |  |
+| 미즈미야 스우 | 스우짱(すうちゃん) | 카나데 선배(奏先輩) |  |
+| 린도 치하야 | 치하짱(ちはちゃん), 치하(ちは) | 카나데 선배(奏先輩) |  |
+| 키키라라 비비 | 비비짱(ヴィヴィちゃん), 비비땅(ヴィヴィたん) | 카나데 선배(奏先輩) | 나데비비(なでヴィヴィ) |
 
 * ReGLOSS
 데뷔 직전에는 [AZKi](/w/AZKi)에 의해 "귀여움 담당일 것 같다"는 이야기가 나왔고, 심지어 동기들 사이에서도 처음 만났을 때는 청초한 천사 같다고 여겨졌지만, 뚜껑을 열어 보니 사실상 ReGLOSS에 관련된 밈을 주도하는 포지션이 되었다. 실제로 카나데의 밈들 중에 '난츄콧타', '우메우메' 같은 것들은 다른 동료들도 종종 따라하곤 한다.
@@ -543,7 +633,7 @@ Civia
 
 ReGLOSS의 막내이기에 단연 귀여움을 사고 있지만, 데뷔 이후 ReGLOSS 멤버들의 말로 카나데의 적극적인 스킨십이 이를 더욱 부추겼다는 것이 밝혀졌다. 영문 모를 매달리기, 백허그, 찰싹붙어서 나란히 걷기, 얼굴 빤히 보기 등의 [스킨십](/w/%EC%8A%A4%ED%82%A8%EC%8B%AD) 달인. 이것이 일본 사람들 기준으로는 높은 레벨의 스킨십이라[[51]](#fn-51) 서로를 알아가는 초반에는 다들 혼란스러웠는데, 많이 친해진 이후에는 [외국인](/w/%EC%99%B8%EA%B5%AD%EC%9D%B8)으로서 카나데와의 성장배경이나 문화권의 차이 정도로 이해하는 모양이다. 그리고 그러한 점이 감회가 되어 반주년 라이브에서 커플링을 조사한 결과, [카나데와의 커플링](https://www.youtube.com/watch?v=Qko0Kio0CiY)이 대부분을 차지한다.
 
-* [주우후테이 라덴](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4): 통칭 나데라데. 카나데를 [캬나디시티 하카타](/w/%EC%BA%90%EB%84%90%EC%8B%9C%ED%8B%B0%20%ED%95%98%EC%B9%B4%ED%83%80)[[52]](#fn-52) 혹은 캬나디라는 특이한 별명으로 부른다. 이에 영향을 받아 [이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4) 외 다른 홀로멤들도 캬나디라는 별명을 쓰는 모습이 가끔 보인다. 카나데 역시 라덴을 오뎅 쨩이라는 자기 혼자만 쓰는 독특한 별명으로 부르고 있다. 라덴은 어려운 말을 자주 쓰는 편인데, 그 때마다 친절하게 설명해줘서 고맙게 생각하고 있다고 하며 [서로 대조적인 성격](/w/%EA%B7%B9%EA%B3%BC%20%EA%B7%B9%EC%9D%80%20%ED%86%B5%ED%95%9C%EB%8B%A4)이라 그런지 1대1 콜라보이전엔 오프로 자주 만나서 노는 편이고 [다른 겨울의 우리들](/w/%EB%8B%A4%EB%A5%B8%20%EA%B2%A8%EC%9A%B8%EC%9D%98%20%EC%9A%B0%EB%A6%AC%EB%93%A4)이라는 2인 협동게임으로 죽이 잘 맞는 면모가 보여줘 약 6시간만에 클리어 해놨고 방송 뒤에선 늘상 같이 술을 마셨으며 원격으로 날린 첫 딥키스 상대도 라덴[[53]](#fn-53)이라고 밝혔다. 
+* [주우후테이 라덴](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4): 통칭 나데라데. 카나데를 [캬나디시티 하카타](/w/%EC%BA%90%EB%84%90%EC%8B%9C%ED%8B%B0%20%ED%95%98%EC%B9%B4%ED%83%80)[[52]](#fn-52) 혹은 캬나디라는 특이한 별명으로 부른다. 이에 영향을 받아 [이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4) 외 다른 홀로멤들도 캬나디라는 별명을 쓰는 모습이 가끔 보인다. 카나데 역시 라덴을 오뎅 쨩이라는 자기 혼자만 쓰는 독특한 별명으로 부르고 있다. 라덴은 어려운 말을 자주 쓰는 편인데, 그 때마다 친절하게 설명해줘서 고맙게 생각하고 있다고 하며 [서로 대조적인 성격](/w/%EA%B7%B9%EA%B3%BC%20%EA%B7%B9%EC%9D%80%20%ED%86%B5%ED%95%9C%EB%8B%A4)이라 그런지 1대1 콜라보이전엔 오프로 자주 만나서 노는 편이고 [다른 겨울의 우리들](/w/%EB%8B%A4%EB%A5%B8%20%EA%B2%A8%EC%9A%B8%EC%9D%98%20%EC%9A%B0%EB%A6%AC%EB%93%A4)이라는 2인 협동게임으로 죽이 잘 맞는 면모가 보여줘 약 6시간만에 클리어 해놨고 방송 뒤에선 늘상 같이 술을 마셨으며 원격으로 날린 첫 딥키스 상대도 라덴[[53]](#fn-53)이라고 밝혔다.
 
 * [히오도시 아오](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4): 통칭 아오카나. 동기 전원에게 숨김없이 친근감을 드러내는 아오이지만 카나데를 특히 귀여워하는 모습을 보이는데, 이케맨 무브를 칠 때마다 진심으로 기분나쁘다며 질색하는 모습을 보면 [참을 수가 없는 듯하다.](/w/%EB%82%98%ED%95%9C%ED%85%8C%20%EC%9D%B4%EB%9F%B0%20%EA%B1%B4%20%EB%84%A4%EA%B0%80%20%EC%B2%98%EC%9D%8C%EC%9D%B4%EC%95%BC) 그러면서도 긴장되면 자신에게 찰싹 달라붙는다고 자랑스레 폭로. 카나데의 시도때도 없는 공격에도 오히려 능글거리며 달라붙기 때문에 매를 버는 스타일인데, 한편으로는 티키타카하기에 가장 좋은 멤버로 의지를 하는 부분이 보인다.[[54]](#fn-54) 아오가 없을 때는 답지 않게 꽤나 소심해지는데, 아오랑 같이 있는 순간 끝도없이 자유로워지며 쌈닭의 모습으로 돌아온다. 재밌게도 동기생임에도 불구하고 존칭인 씨(さん)을 사용한다.[[55]](#fn-55) 나머지는 모두 이름+선배 혹은 이름으로 부른다.[[56]](#fn-56) 방송 중이 아닐 때는 오히려 카나데쪽이 친근하게 다가오는 모양.
 또한 아오를 상대로 카나데 특유의 쿠소가키 말버릇이 강하게 드러난다. 아오가 다소 눈치없는 [플러팅](/w/%ED%94%8C%EB%9F%AC%ED%8C%85)을 시도하면 독특한 억양으로 "키~모~이!"[[57]](#fn-57)라고 외치며, 결혼하자는 드립이 나오면 "이~~에!"[[58]](#fn-58)라고 여러 번씩 외친다. 아오도 이런 모습을 장난삼아 똑같이 따라하기도 한다.
@@ -571,10 +661,86 @@ ReGLOSS에서 카나데와 집이 더러운 것으로 쌍벽을 이루고 있는
 
 * [린도 치하야](/w/%EB%A6%B0%EB%8F%84%20%EC%B9%98%ED%95%98%EC%95%BC): 2024년 연말에 신년 기획 당시 카나데의 몰카 대상이[[75]](#fn-75) 된 것 빼고는 접점이 없었던 상태였으나, [Rust](/w/%EB%9F%AC%EC%8A%A4%ED%8A%B8(%EA%B2%8C%EC%9E%84)) 홀로서버를 계기로 본격적으로 친해졌다. 선배 취급 받고 싶지만 실질적으로는 나이 때문에 막내나 다름 없는 카나데를 치하야가 요시요시 해주는 관계로, 리스너들은 치하야를 사실상 새로운 엄마 후보로 취급하고 있다.
 
-[8.2.](#toc) JP[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=10)
+&nbsp;
 
-| **호칭 및 태그 일람** |  |  |  |
-|---|---|---|---|
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+### [8.2.](#toc) JP[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=10)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 호칭 및 태그 일람 |
+| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
+| 0기생 |
+| 토키노 소라 | 소라 선배(そら先輩) | 카나데짱(奏ちゃん), 캬나디(キャナディ) |  |
+| 로보코 씨 | 로보코 선배(ロボ子先輩) | 카나데(奏) |  |
+| AZKi | 아즈키 선배(AZKi先輩) | 카나데짱(奏ちゃん) | 아즈노세 (あずのせ) |
+| 사쿠라 미코 | 미코 선배(みこ先輩), 미코치 선배(みこち先輩), 미콘누 선배(みこんぬ先輩) | 카나데(奏), 카난누 (かなんぬ) |  |
+| 호시마치 스이세이 | 스이짱 선배(すいちゃん先輩) | 카나데(奏), 카나데짱(かなでちゃん) |  |
+| 1기생 |
+| 아키 로젠탈 | 아키 선배(アキ先輩), 아키로제 선배(アキロゼ先輩) | 카나데짱(奏ちゃん), 캬나디(キャナディ) |  |
+| 아카이 하아토 | 아카짱(赤ちゃん) | 오토짱(おとちゃん), 캬나디(キャナディ) |  |
+| 시라카미 후부키 | 후부키 선배(フブキ先輩) | 카나데(奏), 캬나디(キャナディ) |  |
+| 나츠이로 마츠리 | 마츠리 선배(まつり先輩) | 카나데(奏) |  |
+| 2기생 |
+| 미나토 아쿠아 | 아쿠아 선배(あくあ先輩) | 카나데짱(奏ちゃん) | 졸업 |
+| 무라사키 시온 | 시온 선배(シオン先輩) | 카나데짱(奏ちゃん) | 졸업 |
+| 나키리 아야메 | 아야메 선배(あやめ先輩) | 카나데(奏) |  |
+| 유즈키 초코 | 초코 선생님(ちょこ先生) | 카나데님(奏様) |  |
+| 오오조라 스바루 | 스바루 선배(スバル先輩), 스바루마마(スバルママ), 스바우마마(スバウマッマ) | 카나데(奏), 카나짱(かなちゃん) |  |
+| 게이머즈 |
+| 시라카미 후부키 | 후부키 선배(フブキ先輩) | 카나데(奏) |  |
+| 오오카미 미오 | 미오 선배(ミオせんぱい) | 카나데(奏) |  |
+| 네코마타 오카유 | 오카유 선배(おかゆ先輩) | 카나데(奏) |  |
+| 이누가미 코로네 | 코로네 선배(ころねせんぱい) | 카나데(奏) |  |
+| 3기생 |
+| 우사다 페코라 | 페코라 선배(ぺこら先輩)、토끼(ウサギ)[76] | 카나데짱(奏ちゃん), 카나데(奏) |  |
+| 시라누이 후레아 | 후레아 선배(フレアせんぱい) | 카나데(奏) | 후레나데 (フレなで) |
+| 시로가네 노엘 | 노엘 선배(ノエル先輩)[77], 노엘마마(ノエルママ), 노엘마망(ノエルﾏﾏﾝ) | 카나데짱(奏ちゃん) | 노에나데 (ノエなで) |
+| 호쇼 마린 | 마린 선배(マリン先輩),  마린마마(マリンママ), 마린마망(マリンﾏﾏﾝ) | 카나데(奏) |  |
+| 4기생 |
+| 아마네 카나타 | 카나타 선배(かなた先輩) | 카나데(奏) | 카나카나 (かなかな) |
+| 츠노마키 와타메 | 와타메 선배(わため先輩) | 카나데짱(奏ちゃん) |  |
+| 토코야미 토와 | 토와 선배(トワ先輩) | 카나데(奏) |  |
+| 히메모리 루나 | 루나 선배(ルーナ先輩) |  |  |
+| 키류 코코 | 키류 회장 선배(桐生会長先輩), 코코 선배(ココ先輩), 회장 씨(会長さん) |  | 졸업 |
+| 5기생 |
+| 유키하나 라미 | 라미 선배(ラミィ先輩) | 카나데짱(奏ちゃん) |  |
+| 모모스즈 네네 | 네네 선배(ねねせんぱい), 네네치 선배(ねねち先輩) | 카나데짱(奏ちゃん) |  |
+| 시시로 보탄 | 보탄 선배(ぼたん先輩) | 카나데(奏) |  |
+| 오마루 폴카 | 폴카 선배(ポルカ先輩), 포우포우 선배(ぽぅぽぅ先輩), ぽぅぽぅ(포우포우)[78] | 카나데(奏) |  |
+| 비밀결사 holoX |
+| 라플라스 다크니스 | 라프짱 선배(ラプちゃん先輩), 라프짱(ラプちゃん), 라프라프땅(ラプラプたん) | 카나데(奏) | 라프사마나데나데(ラプさまなでなで) &amp; 라프나데(ラプなで) |
+| 타카네 루이 | 루이 선배(ルイ先輩) | 카나데짱(奏ちゃん) | 루이나데(ルイなで) |
+| 하쿠이 코요리 | 코요리 선배(こより先輩) | 카나데짱(奏ちゃん) | 코요나데(こよなで) |
+| 사카마타 클로에 | 클로에 선배(クロヱセンパイ) | 카나데짱(奏ちゃん) | 활동종료 |
+| 카자마 이로하 | 고자루스승(ござる師匠) | 카나데짱(奏ちゃん) | 고자노세(ござのせ) |
 
 카나데는 데뷔 초기에 홀로라이브 선배들에 대해서 "[여자들이 그렇게나 많이 모여 있는데](/w/%EC%97%AC%EC%B4%88) 어딘가 [날카로운 부분](/w/%ED%9E%88%EC%8A%A4%ED%85%8C%EB%A6%AC)이 분명 있지 않을까" 하며 자신이 잘못해서 미움받을까 봐 걱정했다고 한다.[[79]](#fn-79) 그런데 막상 홀로라이브에 들어와서 X(트위터)와 디스코드 등으로 선배들과 대화를 주고받고 난 후에는 "다들 내 생각보다 하나같이 너무나도 어른스럽다. 나를 상냥하고 다정하게 대해 주신다"고 감격해했다. 주로 노래 및 음악에 크게 관여하는 버튜버들에게 존경하는 편이다.[[80]](#fn-80)
 
@@ -656,10 +822,54 @@ ReGLOSS를 제외하고 오프 콜라보를 2번 진행한 2번째 멤버이기�
 이로하가 컨셉상 사무라이라는 점과 평소 행실이 원리원칙적이고 모범적에 가깝다는 부분 때문에, 카나데가 아오와 함께 [사부](/w/%EC%82%AC%EB%B6%80)님으로 모신다. 다만 깍듯하게 '사부님'으로 모시려는 아오와 달리, 카나데 쪽의 느낌은 좀 더 친근한 '싸부~'에 가깝다.
 여담으로, 이로하의 멤버십 이모티콘으로 카나데 / 캬나데 글자를 완성할 수 있다 보니 카나데와 이로하가 엮일 때마다 이로하의 채팅창에는 멤버십 이모티콘으로 카나데 / 캬나데가 올라오는 광경을 볼 수 있다.
 
-[8.3.](#toc) ID[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=11)
+&nbsp;
 
-| **호칭 및 태그 일람** |  |  |  |
-|---|---|---|---|
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+### [8.3.](#toc) ID[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=11)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 호칭 및 태그 일람 |
+| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
+| 1기생 |
+| 아윤다 리스 | 리스 선배(リス先輩) | 카나데(奏) |  |
+| 무나 호시노바 | 무나 선배(ムーナ先輩) |  |  |
+| 아이라니 이오피프틴 |  |  |  |
+| 2기생 |
+| 쿠레이지 올리 | 올리 선배(オリー先輩) | 카나데짱(奏ちゃん) |  |
+| 아냐 멜핏사 | 아냐 선배(アーニャ先輩) | 카나데짱(奏ちゃん) |  |
+| 파볼리아 레이네 |  | 카나데(奏) |  |
+| 3기생 |
+| 베스티아 제타 | 제타 선배(ゼータ先輩), 제타짱(ゼータちゃん) | 카나데(奏) |  |
+| 카엘라 코발스키아 | 카엘라 선배(カエラ先輩), 카엘라신(カエラ神) | 카나데(奏) |  |
+| 코보 카나에루 | 코보 선배(こぼ先輩), 보코보코짱(ぼこぼこちゃん) | 카나데짱(奏ちゃん), 카나두이(Kanaduy) |  |
 
 * 1기생
 [무나 호시노바](/w/%EB%AC%B4%EB%82%98%20%ED%98%B8%EC%8B%9C%EB%85%B8%EB%B0%94): 방송 상으로도 오프라인 상으로도 딱히 접점이 없는 멤버였으나, 2025년 2월 15일 무나의 생일맞이 3D 라이브에 게스트로 참여해 무나, 와타메와 같이 [Maze Town](/w/Maze%20Town)을 불렀던 것이 확인되었다. 게스트는 보통 친한 사람들을 초청한다는 걸 감안하면 둘이 따로 썰을 풀지 않았을 뿐 접점이 존재했던 것은 확실하다.[[149]](#fn-149)
@@ -670,30 +880,158 @@ ReGLOSS를 제외하고 오프 콜라보를 2번 진행한 2번째 멤버이기�
 * [카엘라 코발스키아](/w/%EC%B9%B4%EC%97%98%EB%9D%BC%20%EC%BD%94%EB%B0%9C%EC%8A%A4%ED%82%A4%EC%95%84): 카나데가 하드코어 서버를 계기로 마인크래프트에 빠지면서 친해진 관계. 카엘라의 말버릇 중 하나인 "HAIYAA~"가 카나데에게 전염되며 이전의 난츄콧타만큼이나 방송 중에 자주 외치곤 한다.
 * [코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8): 2024년 신년 도츠마치 방송 때 찾아온 뒤로 엮이게 된 관계. 세뱃돈을 받기는 커녕 오히려 선배세를 뜯길 뻔 했으나 오프 콜라보를 하면서 보여준 [프라이 팬도 없고 냉장고는 전기도 연결되어있지 않은 집안 꼴](/w/%EC%95%BC%EC%83%9D)로 어떻게든 무마했다. 1박을 포함한 방문이어서 침대도 빌려주었으며, 저녁에 피자도 배달시켜먹고 다음 날 업무를 위해 일찍 일어난 코보와 아침도 먹으러 가는 등 친목을 돈독히 했다. 카나데가 자취하는 모습이 얼마나 믿음직스럽지 못했던지, 쿠소가키 이미지가 압도적인 코보가 듬직한 선배가 되어 종알종알 잔소리를 하는 충격적인 모습을 보였다.[[150]](#fn-150) 이후로는 코보가 카나데를 잘 챙겨주고 있다.[[151]](#fn-151) 방송 외에도 디스코드로 개인적인 연락까지 할 정도로 ID 멤버 중에서도 가장 관계가 깊다.[[152]](#fn-152) 카나데가 기수 상관없이 서로 별명을 부르며 친구처럼 지내는 몇 안되는 홀로멤이기도 하다.[[153]](#fn-153)
 
-[8.4.](#toc) EN[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=12)
+&nbsp;
 
-| **호칭 및 태그 일람** |  |  |  |
-|---|---|---|---|
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+### [8.4.](#toc) EN[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=12)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 호칭 및 태그 일람 |
+| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
+| Myth |
+| 모리 칼리오페 | 칼리오페 선배(カリオペ先輩) | 카나데(奏) |  |
+| 타카나시 키아라 | 키아라 선배(キアラ先輩) | 카나데짱(奏ちゃん) |  |
+| 니노마에 이나니스 | 이나 선배(イナ先輩) | 나데 나데 카나데(なでなでかなで) |  |
+| 가우르 구라 | 구라 선배(ぐら先輩) |  | 졸업 |
+| 왓슨 아멜리아 | 아멜리아 선배(アメリア先輩) |  | 활동종료 |
+| Council |
+| 츠쿠모 사나 | 사나 선배(佐命先輩) |  | 졸업 |
+| Promise |
+| IRyS | 아이리스 선배(アイリス先輩) | 카나데(Kanade) |  |
+| 오로 크로니 | 크로니 선배(クロニー先輩) |  |  |
+| 나나시 무메이 |  | 카나데(Kanade) | 졸업 |
+| 하코스 벨즈 | 베이 선배(べー先輩) | 카나데(Kanade) |  |
+| 세레스 파우나 | 파우나 선배(ファウナ先輩) |  | 졸업 |
+| Advent |
+| 시오리 노벨라 |  |  |  |
+| 코세키 비쥬 | 비쥬 선배(ビジュー先輩), 비부(Biboo) | 카나데짱(奏ちゃん) |  |
+| 네리사 레이븐크로프트 | 네리사짱(ネリッサちゃん) | 카나데(Kanade) |  |
+| 후와모코 | 후와모코짱(フワモコちゃん), 후와모코 선배(フワモコ先輩) | 카나데씨(奏さん) |  |
+| Justice |
+| 엘리자베스 로즈 블러드플레임 | 엘리자베스짱(エリザベスちゃん) | 카나데 선배(奏先輩) |  |
+| 지지 무린 | 지지짱(ジジちゃん), 지지 선배(ジジ先輩)[154] | 카나데 선배(奏先輩) |  |
+| 세실리아 이머그린 | 세실리아짱(セシリアちゃん) | 카나데 선배(奏先輩) |  |
+| 라오라 판테라 | 라오라짱(ラオーラちゃん) | 카나데 선배(奏先輩) |  |
 
 * Myth
 [모리 칼리오페](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98): 음악 관련으로 카나데가 진심으로 존경하는 멤버 중 한 명. 음악 대담에 초대해서 음악과 관련된 대화를 나눈 걸 계기로 많이 친해졌다. 칼리의 [51 Worldwide Games](/w/51%20Worldwide%20Games) 도츠마치에 첫 번째로 참여하기도 하고, 오프라인에서 같이 밥을 먹기도 했으며[[155]](#fn-155) 칼리의 첫 번째 오리곡인 [失礼しますが、RIP♡](/w/%E5%A4%B1%E7%A4%BC%E3%81%97%E3%81%BE%E3%81%99%E3%81%8C%E3%80%81RIP%E2%99%A1)가 4000만 재생수를 돌파하자 진심으로 축하해주었다.
 2024년 12월 26일, 칼리와 듀엣으로 [Beyond the way](/w/Beyond%20the%20way)를 커버하게 되었다. ReGLOSS 이외 타 멤버와의 첫 듀엣이다.
 * [니노마에 이나니스](/w/%EB%8B%88%EB%85%B8%EB%A7%88%EC%97%90%20%EC%9D%B4%EB%82%98%EB%8B%88%EC%8A%A4): 별로 엮인 적은 없지만 마주칠 때마다 이나는 '나데 나데 카나데'라 하고, 카나데는 '타코 타코 [타코야끼](/w/%ED%83%80%EC%BD%94%EC%95%BC%EB%81%BC)'라고 칭하며 티키타카를 하는 편이다.[[156]](#fn-156) 타 홀로멤들에 비하면 교류 기간이 적은 편이지만, 서로 데면데면한 면은 크게 보이지 않고 오히려 말장난을 즐기며 친근한 모습을 보여주는데, 뒤에서 홀로멤들과 놀아도 썰을 잘 풀지 않는 카나데의 특성이나 후배들에게 다가가기 어려워하는 이나의 성향을 생각하면[[157]](#fn-157) 이나와 확실한 접점이 존재했던 것으로 추정된다.
 
-[8.5.](#toc) 홀로라이브 이외[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=13)
+&nbsp;
 
-| **호칭 및 태그 일람** |  |  |  |
-|---|---|---|---|
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+### [8.5.](#toc) 홀로라이브 이외[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=13)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 호칭 및 태그 일람 |
+| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
+| 양나리 | 나리짱(ナリちゃん) | 카나데짱(奏ちゃん) | 나데나리(なでナリ) |
+| 시구레 우이 | 우이 할머니(ういばあちゃん) | 카나데짱(奏ちゃん) | 월요일 쓰레기의 날(月曜ゴミの日) |
 
 * [양나리](/w/%EC%96%91%EB%82%98%EB%A6%AC): 통칭 나데나리. 카나데의 첫 외부 콜라보로, [Lethal Company](/w/Lethal%20Company) 4인 콜라보에서 만났다. 당시 멤버는 ReGLOSS 2명, [니지산지](/w/%EB%8B%88%EC%A7%80%EC%82%B0%EC%A7%80) 2명이었다(아오, 양나리, [멜로코 쿄란](/w/%EB%A9%9C%EB%A1%9C%EC%BD%94%20%EC%BF%84%EB%9E%80)) 이후 [51 Worldwide Games](/w/51%20Worldwide%20Games) 1대1 콜라보도 진행하였다. 2024년 4월 20일 생일 기념 방송의 도츠마치에서도 가장 먼저 나타나 격의없는 대화를 주고받으며 두터운 친분을 드러냈다.
 * [시구레 우이](/w/%EC%8B%9C%EA%B5%AC%EB%A0%88%20%EC%9A%B0%EC%9D%B4): 통칭 월요일 쓰레기의 날.[[158]](#fn-158) 스바루가 2024년 9월부터 카나데의 엄마로 받아들여지자 일각에서 엄마의 엄마는 할머니라는 논리로, 스바루의 마마가 우이[[159]](#fn-159)니까, 카나데에겐 할머니가 된다는 장난스러운 팬들의 의견이 있어왔다. 2025년 1월 26일에 카나데가 [유튜브 쇼츠](https://youtube.com/shorts/iYkRoKXAgz0?si=ZIBVbZoene7L2WUn)로 우이의 [うい麦畑でつかまえて](/w/%E3%81%86%E3%81%84%E9%BA%A6%E7%95%91%E3%81%A7%E3%81%A4%E3%81%8B%E3%81%BE%E3%81%88%E3%81%A6) 댄스 커버 영상을 올렸는데 그걸 본 우이가 ["음~ 귀여움죄로 포획 불가피"](https://x.com/ui_shig/status/1883806473635197203?t=-hLPIlL-c45sRX2QlQiAcg&amp;s=19)라는 트윗을 올렸고 그 트윗에는 카나데를 손녀, 우이를 할머니라 하는 드립들이 폭발했다. 이것이 계기가 되어 우이가 카나데와 친해지고 싶다는 의사를 드러냈고, 2월 7일 방송에서 밝히길 디스코드 연락처를 교환했다고 한다([방송시간 1:38:57](https://www.youtube.com/live/eGznEsrbwbE?t=5936&amp;si=BK4v8Oq2VLgAxVxo)).
 2025년 5월 18일 우이의 6주년 기념 역도츠마치에 참여, 우이 할머니(ういばあちゃん)라는 표현에 우이가 크게 불편해하지 않고 오히려 적극적으로 써도 좋다고 말하며[[160]](#fn-160) 허락을 받아냈다. 우이의 방송에 월요일 폭탄을 던져놓아 채팅방을 빨갛게 물들이고 간 것은 덤. 이 역도츠마치 건으로 우이에게 손녀로 인정받는 데 성공했으며[#](https://x.com/ui_shig/status/1924123310637654191?t=dwXCNaiq9e_m2FmlPi9RMg&amp;s=19), 이후에는 근시일 내에 오프라인에서 만나자는 약속을 잡거나 [세계 게임전집 51](/w/%EC%84%B8%EA%B3%84%20%EA%B2%8C%EC%9E%84%EC%A0%84%EC%A7%91%2051) 콜라보를 하기도 하고, 작업 중 서로 디스코드로 통화를 하며 서로의 그림 실력이나 노래 실력을 칭찬하기도 하는 등 급격히 가까워지는 모습을 보이고 있다.
 관계도 상 우이 &gt; 스바루 &gt; 카나데 순으로 가계도가 이어지지만 정작 캐릭터 설정상의 나이로 따지면 우이(9세 or 16세) &lt; 스바루(17.4세) &lt; 카나데(20세)로 카나데가 제일 연장자인 것이 아이러니.
 
-[9.](#toc) 여담[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=14)
+&nbsp;
 
-| **홀로그라 출연회차** |
-|---|
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+## [9.](#toc) 여담[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=14)
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+| 홀로그라 출연회차 |
+| 펼치기/접기 순번 | 제목 | 업로드 날짜 | 영상 |
+| 1st | 오마에라! 카나데 홀로그라 보러 와!!![161] | 2024. 10. 6. |  |
+| 2nd | 일단 범인은 절름발이 | 2024. 12. 22. |  |
+| 3rd | 우릴 기억해줘어어어어 | 2024. 12. 29. |  |
+| 4th | 절대 보면 안 되는 비디오[162] | 2025. 1. 5. |  |
+| 5th | 이것도 통과해 보시지! | 2025. 3. 2. |  |
+| 6th | 심부름은 어려워 | 2025. 6. 22. |  |
 
 * 캐릭터 디자인을 보면 음악에 관련된 디테일이 굉장히 많다. 가장 우선 눈에 띄는 것은 머리에 ♬♪ 모양의 브로치를 달고 있다는 것. 그 외에도 목 앞의 리본은 [가온음자리표](/w/%EC%9D%8C%EC%9E%90%EB%A6%AC%ED%91%9C#s-2.3) 모양으로 묶여 있으며, 겉옷 소매에는 [도돌이표](/w/%EB%8F%84%EB%8F%8C%EC%9D%B4%ED%91%9C) 기호로 장식되어 있고, 겉옷 아랫단에는 검은건반과 흰건반이 화려하게 수놓여 있다. 이뿐만 아니라 신고 있는 [오버 니 삭스](/w/%EC%98%A4%EB%B2%84%20%EB%8B%88%20%EC%82%AD%EC%8A%A4)의 왼쪽 밴드에는 [오선보](/w/%EC%98%A4%EC%84%A0%EB%B3%B4)와 그 안에 도돌이표가 그려져 있으며, 오른쪽 가터에는 낮은음자리표가 장식되어 있다.
 * [봇치 더 록!](/w/%EB%B4%87%EC%B9%98%20%EB%8D%94%20%EB%A1%9D!)의 등장인물인 [이지치 니지카](/w/%EC%9D%B4%EC%A7%80%EC%B9%98%20%EB%8B%88%EC%A7%80%EC%B9%B4)와 유사점이 많다. 외형적으로는 둘 다 노란머리에 바보털이 있으며, [사이드 테일](/w/%EC%82%AC%EC%9D%B4%EB%93%9C%20%ED%85%8C%EC%9D%BC)[[163]](#fn-163)로 머리를 묶고 장신구로는 붉은 리본을 사용하고 있다. 또한 둘 다 음악에 대한 애정이 깊으며, 음악적인 성공을 추구하는 편이다. 방송 초반에는 니지카 이즈 리얼 이라는 밈이 잠시 돌았으나, 성격이 착실하고 맴버들을 챙겨주는 포지션인 니지카와는 달리 카나데는 완전 덜렁이에 막내 포지션이라는 완전 상극의 포지션 때문에 지금은 사그라든 편.[[164]](#fn-164)
@@ -742,18 +1080,26 @@ Live2D 모델의 표정 변경 시 [바보털도 움직인다](https://www.youtu
 [스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)에 의하면 의외로 카나데 본인이 궁지에 몰리거나 초조해지면 [뇨뇨뇨뇨 거리면서 양쪽 검지를 빙글빙글 돌리는 습관](https://youtu.be/bSjDEjT4nbE?si=GGXVKGctW2itYj20)이 있다고 한다. 정작 카나데 본인은 이를 눈치채지 못하고 있다고.
 스바루와 미코[[191]](#fn-191)는 카나데를 [골든 리트리버](/w/%EA%B3%A8%EB%93%A0%20%EB%A6%AC%ED%8A%B8%EB%A6%AC%EB%B2%84)로 비유하며 친화력이 굉장히 높다고 평가했다. 이 둘이 카나데를 골든 리트리버로 비유한 게 2025년 4월 홀로멤 14인[[192]](#fn-192)이 야카타부네를 갔던 일화에서 비롯되었는데, 보통 사람과 사람이 인사할 때 마주 보고서 인사하는 것과 달리 카나데는 일일이 멤버들의 옆에 달라붙어 인사를 건넸다고 한다. 그것도 몇몇만 그러는 게 아니라 눈에 보이는 사람 전부한테 그랬다고. 이 발언 이후 카나데에게 골든 리트리버의 귀와 꼬리를 달아주거나 아예 골든 리트리버로 그리는 팬아트들이 생겨나기 시작했다. 정작 카나데는 골든 리트리버보다는 고양이라 불리는 것이 마음에 든다고 한다. 좀 더 구체적으로는, 스이세이처럼 "흥, 모르겠는걸!"이라는 도도한 반응을 보여도 주변인들이 귀엽다고 해주는 고양이의 이미지가 좋다고. 다만 근래에 [사모예드](/w/%EC%82%AC%EB%AA%A8%EC%98%88%EB%93%9C) 카페에 들르면서 개들이 귀엽다고 하거나 노엘 / 카나타 / 라미와의 홈파티에서 노엘의 대형견 '완쵸무'를 보고선 '자기도 노엘 엄마의 강아지가 되고 싶다'라고 하는 등 점점 개를 마음에 들어하는 모습도 보이고 있다.
 
+&nbsp;
+
+&nbsp;
+
+&nbsp;
+
 [](#s-21)
 
 wZYMnyDJ
-[여의사진료퀸즈메디산부인과의원](#s-21)[www.queenzmedi.com](#s-21)
-[대전 탄방동, 산부인과 진료, 레이져 여성성형, 제모, 사각턱보톡스, 의32838](#s-21)
+[![테일러샵 미사글리아 맞춤정장](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwvoJZtiM3y2zPTVCUxSPTAcZNVbP4jyviYSrPdpbyKlEAgeFB0Mi14N59Di-VVV0Dl2WKGKY3RHPFW1S-FuXc-C1tRlE3vaaPXzODtTezZC0QXvQW4u2FM6nMBa-qxQRPWJHqfaomzxWdYluAjkVLGlbICKqG6WlHnvDuZ6VoY6rhMDR3wSd01nGFYEc16wFehdWSydNOoDLaiyeWL99iXg7IaIEVyu2VAEjFACxA6MLVLuTJjmE-WPxO7rxruZ4P.png)](#s-21)[테일러샵 미사글리아 맞춤정장](#s-21)[blog.naver.com/johntailor_co](#s-21)
+[인스타그램](#s-21)[상담과정](#s-21)[예복패키지](#s-21)[예복상담](#s-21)[천천히, 다만 심혈을 기울여 만듭니다. 남녀 맞춤정장, 셔츠, 코트, 예복 전문.](#s-21)
 
-[팝의원, 대전 둔산](#s-21)[popclinic1.com](#s-21)
-[병원소개](#s-21)[의료진소개](#s-21)[진료시간](#s-21)[오시는길](#s-21)[월화수목금 야간진료 8시까지, 토요일4시까지, 진료과목 피부과, 둔산동 위치](#s-21)
+[![대전 예물성지 다이아캐슬](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwPj1H2Qybtl44CdtG9eM5E_eF0LgNiBKtPqCVIDP-Tcs33fenpB8nOhjwWpafRGgdF_8_2cBU133X20EgLonosgYWIMnDJY7exOz3Yx8ToaVTybFpLU09Mu_8aqBJ_s7FIjhX1987_87Dd9Hfo5DCMV0Pvi3t4NUVg7rAU4Mw8ZdlLkFKs8cWI-_KdD68MHyXAI7tTqPLZo7_6bDXd5OE_sdXwL0vpPo_Ml7UOqzoPYjr13TwPNeG1PJXEhMTa3Sk.png)](#s-21)[대전 예물성지 다이아캐슬](#s-21)[blog.naver.com/diacastle365](#s-21)
+[커스텀 예물반지 전문샵,자체 공방에서 제작하는 BEST 예물 밴드 파격적인 할인가](#s-21)
 
 wZYMnyDJ
 
 [[1]](#rfn-1) 여기에 신발 2cm를 포함하면 165cm(?)가 되지만 아쉽게도 지구 물리로는 155cm라고 한다.[[출처]](#rfn-2) 2023년 9월 24일에 진행된 [마슈마로 읽기](https://www.youtube.com/watch?v=iTLNAp9vlxI&amp;t=2195s) 방송과 2023년 9월 30일자 [게임 방송](https://www.youtube.com/live/0vuWTIGJXBA?t=4719)에서의 슈퍼챗 읽기 시간에서 밝혔다. ENTP가 많이 나오고 가끔 INTP가 나온다고 한다.[[3]](#rfn-3) 2025년 4월 20일 3D 라이브에서 [직접 언급](https://www.youtube.com/watch?v=mt8AyISL9Ig&amp;t=3818s). [국적 관련](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95#%EA%B5%AD%EC%A0%81%20%EA%B4%80%EB%A0%A8) 문단 참고.[[4]](#rfn-4) 주로 3인칭화를 사용하나, 예의를 차리거나 자기소개를 할 경우에는 와타시를 사용한다.[[5]](#rfn-5) [미나토 아쿠아](/w/%EB%AF%B8%EB%82%98%ED%86%A0%20%EC%95%84%EC%BF%A0%EC%95%84)의 [점묘의 노래](https://youtu.be/AUP3OI9Yhmc?si=weYzFxw4Lp0MiYK4) 일러스트도 담당.[[기준]](#rfn-6) 2025년 07월 21일[[7]](#rfn-7) '오토노세'와 '세력'을 뜻하는 세이(勢(せい))를 합친 것. 오토노세이로 읽는 경우가 많았으나, 데뷔 방송에서도 otonozei라 표기하고 있었고, 2023년 9월 30일 파인애플 온 피자 게임 슈퍼챗 리딩에서 오토노제이가 맞다고 확인해 주었다.[[8]](#rfn-8) 카나데는 방송에서 오토노제이라는 표현을 거의 쓰지 않으며 오마에라!를 외쳐대면서 시청자들을 부르는 탓에 오토노제이들 본인들은 물론 다른 홀로멤들까지도 카나데의 팬덤을 오마에라로 인지하고 있다. 공식 매체인 홀로그라, 일부 영상에서도 오마에라가 그대로 쓰일 정도로 공식화 되어 오토노제이를 거의 밀어내었다. 여담으로 "오토노제이"라는 특이한 독음법이 본의아니게 "오마에라"의 안착에 적지않은 영향을 끼쳤는데, 다른 홀로라이브 멤버들이 의식해서 "오토노제이"라고 읽어줄려다가도 "오토노세이"라고 읽히니까 헷갈려서 그냥 "오마에라 님들"이라고 부르는 경우가 꽤나 잦다. 2025년 7월 3일, 시구레 우이와 콜라보 했을 때도 카나데는 예의상 본인 시청자를 "오토노제이"라고 소개했으나 우이에게 정작 아무도 그렇게 안 부르지 않냐고 지적당했다.[[9]](#rfn-9) 가장 보편적인 별명으로, [주우후테이 라덴](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4)이 카나데를 '캬나디시티 하카타'라는 별명으로 부르는 것에서 유래했다. 라덴뿐만 아니라 다른 멤버들과 리스너들이 자주 사용하는 별명이다.[[10]](#rfn-10) 캬나디의 파생 별명. 어감이 좋기 때문인지 캬나디와 함께 혼용된다. 해당 별명을 자주 사용하는 멤버로는 [시라카미 후부키](/w/%EC%8B%9C%EB%9D%BC%EC%B9%B4%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)가 있다.[[11]](#rfn-11) [아마네 카나타](/w/%EC%95%84%EB%A7%88%EB%84%A4%20%EC%B9%B4%EB%82%98%ED%83%80)가 '카나타소'라는 별명을 가지고 있는 것에 착안해 붙여진 별명. 원래는 일본 팬덤에서 사용하는 별명이었다가 리리카가 이 별명으로 부르기 시작했다고 한다. 카나데 본인은 귀여운 별명이라며 마음에 들어했다고.[[12]](#rfn-12) 카나데는 코보를 '보코보코짱'이라고 부른다.[[13]](#rfn-13) 성인 '오토노세'에서 '오토'만 떼어와 거기에 '~짱'이라 붙인 것. 반대로 카나데 또한 하아토의 성인 '아카이'에서 '아카'만 떼어와 '아카짱'이라 부른다.[[14]](#rfn-14) 2025년 5월 15일 미코의 방송에서 미코가 서로 편하게 부르자고 별칭을 생각하다가 즉석으로 지은 별명. 카나데가 ~누(~ぬ)를 유행어로 밀려고 하는 것에서 착안했다. 반대로 미코는 미콘누(みこんぬ)라는 별명으로 불린다.[[15]](#rfn-15) mv 시작에는 이 싸인이 나온다.[[16]](#rfn-16) 데뷔 소개글은 운영이 임의로 작성하지만 이후 방송을 통해 드러난 성격에도 잘 맞는다는 (노력가, 가키, 식탐, 심지어 소갯말까지도) 의견이 많았고, 심지어 본인이 보기에도 일치하는 부분이 많다고 여겼던지 소개글을 근거로 타카네 루이가 PON이라고 주장하기도 했다. 2024년 1월 13일 호쇼 마린의 홀로멤 공식 프로필 감상 방송에서도 전혀 위화감이 없다는 평이었다.[[17]](#rfn-17) 전체 인사말은 매니저의 도움을 받아 만들었지만 도레미파솔라시도 부분은 카나데의 발안이었다고 밝혔다. 처음 인사말을 소개할 때만 해도 본인이 절대음감이 없어서 컨디션이 나쁠 때는 도레미파솔라시도를 올바른 음정에 맞춰 말하지 못할 것을 걱정했고 한동안 깨끗한 발성으로 음정을 맞추기도 했으나, 얼마 지나지 않아 점점 음정 무시에 [하디몌](/w/%ED%86%A0%EB%8F%84%EB%A1%9C%ED%82%A4%20%ED%95%98%EC%A7%80%EB%A9%94)를 연상케하는 뭉개진 발음이 되었다.[[한국어]](#rfn-18) 도레미파솔라시도~! 홀로라이브 DEV_IS(데바이스) 소속, ReGLOSS(리글로스)의 음악가의 달걀! 오토노세 카나데입니다~! [출처](https://youtu.be/-m9qiOO8BWo?t=373)[[19]](#rfn-19) '달걀' 부분은 한국어에서는 쓰이지 않는 표현이라 직역했다고 밝혔다. 국내 클리퍼들 사이에서는 '음악가의 새싹', '햇병아리 음악가' 등으로 의역되고 있었다.[[20]](#rfn-20) 데뷔일을 제외하고 모든 기준 날짜는 당월 1일로 한다.[[21]](#rfn-21) ReGLOSS 멤버들은 데뷔 전후로 유튜브 알고리즘에 의해 지속적으로 구독자 수를 강제 조정당해 정확한 수치는 아님.[[22]](#rfn-22) '~의 달걀(~の卵)'은 일본어에서 '아직 제 몫을 못하는 초보'라는 뜻이 있으며, 한국어로는 흔히 '새싹', '햇병아리'로 번역된다. 초기엔 번역이 정착되지 않았으나 이후 홀로그라 공식 번역으로 새싹으로 확정되었다.[[23]](#rfn-23) 방송 초기에는 난츄콧타 타임스탬프를 모아 댓글로 다는 소위 난츄콧타 선생들도 존재했으나, 세는 게 의미 없을 정도로 자주 등장하면서 점차 자취를 감췄다.[[24]](#rfn-24) 실제로 2023년 11월 24일 방송에서 한국인의 "우메우메 포스트가 그립다."라는 슈퍼챗을 읽다가 한국어로 "야!!! 너희들이 계속 '푸니푸니'라고 하니까 내가 '우메우메'라고 못 하잖아!"라며 화를 냈다.[#](https://youtu.be/hmfxqI9uqn0)[[25]](#rfn-25) 미코는 ReGLOSS 3D 라이브 종료 후 홀로 GTA 클립을 시청하면서 카나데가 나오자 "이 사람, 아까 아카펠라로 노래 불렀던 사람입니다"라고 말했고, 코요리는 2024 카운트다운 라이브에서 소라 / 후레아와 함께 메스머라이저를 부르는 카나데를 가리켜 "어라, 뭔가 아까 있던 카나데랑 다른걸? 다른 사람인가?"라고 말했다. 카나데 특유의 늘어지는 목소리로 "코요리 선배~ 안녕하세요~"라며 성대모사를 하는 것은 덤.[[26]](#rfn-26) 나이를 가지고, 월요일 놀리기 등[[27]](#rfn-27) 일명 무카무카콘[[예시]](#rfn-28) [EN 버전](https://x.com/thechadsenate/status/1902676319365996675?t=QDfRd4QSTOql3K5_eJM1BQ&amp;s=19)[타임스미스 버전](https://x.com/cloudrain_demon/status/1899818214483542052?t=u4W9Uq3sjZvI3lw8c2SkMQ&amp;s=19)[네네 버전](https://x.com/nogawart/status/1906688525694853531?t=ITq4cKoJr3383EhShAO_Fw&amp;s=19)[후부키 버전](https://x.com/kumarang_/status/1919289379828224502?t=R0iCJ9c-Ji1grpls1BEpDQ&amp;s=19)[후레아 버전](https://x.com/yukigunieno/status/1924446267473887400?t=yMBxcI1rJNW0CWcKLDLvbA&amp;s=19)[라미 버전](https://x.com/k0buT_3/status/1924819395882398166?t=OPQoJ_fqUSGMvxWPZvpdkg&amp;s=19)[로보코 버전](https://x.com/robocosan/status/1934702108055662833?t=8RIAut7hhwDbJQl3HkL0Dw&amp;s=19)[와타메 버전](https://x.com/hsiungmao/status/1942090122092236810?t=eSKGsQSzSKVBz73OC__-tQ&amp;s=19)[[29]](#rfn-29) 실제로는 다른 알을 잡고서 먹었기에 번개 와이번의 알을 먹지 않았다.[[30]](#rfn-30) 물론 홀로아크 서버 4일차까지 카나데의 목소리가 지나치게 크게 들린 것은 세팅값 실수였던 것도 있으며, ARK는 멀리 떨어진 유저들과 소통을 원할하게 진행할 수 있도록 먼 곳에서 들리는 유저의 목소리가 선명하게 들리도록 설정되어 있다. 그런데 그걸 감안해도 카나데의 목소리가 너무 크다는 것.[[31]](#rfn-31) 유행어 나잇대가 안맞긴 하지만 [웃찾사](/w/%EC%9B%83%EC%B0%BE%EC%82%AC)에서 [나몰라패밀리](/w/%EB%82%98%EB%AA%B0%EB%9D%BC%ED%8C%A8%EB%B0%80%EB%A6%AC#%EC%9B%83%EC%9D%8C%EC%9D%84%20%EC%B0%BE%EB%8A%94%20%EC%82%AC%EB%9E%8C%EB%93%A4)가 쓰던 유행어에서 [유남생](/w/%EC%9C%A0%EB%82%A8%EC%83%9D)을 알고 쓰게 됐을 가능성이 높다.[#](https://youtu.be/lEsn-xANds0?t=98) [[32]](#rfn-32) 코로네, 후부키, 후와모코[[33]](#rfn-33) 이 장면은 카지노에서 나온 카나데가 쓸데없이 진지한 어투로 땡땡이에 대한 얘기를 하던 중 정말 우연히 그 주변을 지나가던 스바루와 마주치자 카나데가 "아핫!!"이라면서 도망가고 스바루가 "카나데에에에에!"를 외치면서 졸지에 추격전을 하는 장면이다.[[34]](#rfn-34) 스바루는 [오오하라 다이지로](/w/%EC%98%A4%EC%98%A4%ED%95%98%EB%9D%BC%20%EB%8B%A4%EC%9D%B4%EC%A7%80%EB%A1%9C)에 빗대 오오하라 스바루라는 별명을 얻었다.[[35]](#rfn-35) 이 영상의 설명란이 압권인데, 여기에 소스로 들어간 "카나데에에에에!"는 단 하나도 중복된 소스가 없다고 한다.[[36]](#rfn-36) 한국 팬덤에서는 [섹도시발](/w/%EC%84%B9%EB%8F%84%EC%8B%9C%EB%B0%9C)과 엮기도 한다.[[37]](#rfn-37) 해당 쇼츠에서는 바닷속을 배경으로 모랫바닥에 누워 물고기 흉내를 냈는데 그 움직임이 실로 하찮고 귀여워서 새로운 합성 소재로 부상했다.[[38]](#rfn-38) 실제로 소라는 카나데가 샤브샤브를 좋아한다는 걸 알게 된 이후로 샤브샤브를 같이 먹자고 꼬시는 것으로 자주 카나데와 밥을 먹는다고 한다.[[39]](#rfn-39) 특히 일본 음식은 싫어하는 [네리사 레이븐크로프트](/w/%EB%84%A4%EB%A6%AC%EC%82%AC%20%EB%A0%88%EC%9D%B4%EB%B8%90%ED%81%AC%EB%A1%9C%ED%94%84%ED%8A%B8)도 샤브샤브는 맛있다고 한 바가 있다.[[40]](#rfn-40) 다만 라이브 마지막에 월요일 놀리기를 한 건 카나데가 아닌 스태프의 아이디어였다고 한다. 심지어 패널 또한 스태프들이 제작한 거였다고.[[41]](#rfn-41) with 후부키[[42]](#rfn-42) 스태프라 개인 방송이 따로 없지만 X에서 카나데의 월요일 트윗을 인용하며 "월요일이… 왔다…!(げつようびが…きた…！)"라는 [트윗](https://x.com/harusakinodoka/status/1901287683990925444?t=VuOx5r1e5ZZSldA-44cW-Q&amp;s=19)을 올렸다.[[43]](#rfn-43) with 미코[[44]](#rfn-44) with 치하야[[45]](#rfn-45) 특히 미코 / 후부키 / 후레아 / 와타메가 월요일 드립을 은근히 자주 하는 편이다.[[46]](#rfn-46) 미니 라이브 Sakura Mirage 종료 후 카나데가 월요일을 알리는 Shorts를 인용했다.[[47]](#rfn-47) 당장 2024년 카나데의 희대의 PON인 인터넷 해지 사건이 12월 2일인 월요일에 발생했다.[[48]](#rfn-48) 거기다 정작 자기도 월요일을 싫어한다. 리스너들의 속을 긁는 게 재밌어서 이럴 뿐이라고.[[49]](#rfn-49) 그 대신 월요일 방송 종료 때 "내일은 화요일이야! 하하하!"라는 기출변형을 들고 나왔다.[#](https://youtu.be/xul01R4qyWc?t=19)[[50]](#rfn-50) 한국도 마찬가지이며, 도서관 역시 절대 다수가 월요일에 휴관한다.[[51]](#rfn-51) 아무리 친하고 동성이라도 서로의 영역을 존중하는 차원에서 적당히 거리감을 두는 문화가 있는 일본인들 기준으로는, 농담 보태면 거의 숨쉬듯 [플러팅](/w/%ED%94%8C%EB%9F%AC%ED%8C%85)을 한 셈이다. 의외일 수 있겠지만 자유롭다는 이미지와 달리 미국과 일본은 동성이라 할지라도 터치가 적은 편이다.[[52]](#rfn-52) 라덴의 출신지인 후쿠오카의 랜드마크가 어원이다.[[53]](#rfn-53) 같이 합방한 홀로라이브 보물마운틴 게임에서 입을 막는답시고 드레인 키스를 날린 다음에 라덴이 기겁하고 별로 귀하지 않은 키스라고 하자 했던 이야기[[54]](#rfn-54) 실제로 아오의 경우 문서에 작성된 개인사에서도 나오지만 홀로라이브에 입사했을 당시의 아오는 그야말로 멘탈이 박살나다 못해 가루가 될 정도로 멘탈에 큰 타격을 입은 상태에서 될대로 되라지란 마음을 먹을 만큼 마음의 상처를 입고 있던 상태였는데 그런 아오의 곁에 플러팅을 하면서도 쿠소가키처럼 짖궂게 구는 개구쟁이적인 면모로 붙어다니자 이 때문에 멘탈의 건강이 쌩쌩해질 정도로 회복될 수 있었다고 한다. 이 때문인지 아오가 유달리 카나데를 가장 아끼는 모습을 보여준다.[[55]](#rfn-55) 흔치않게 진심으로(장난으로) 갈구러 갈 때는 "어디냐 히오도시~"라며 성 혹은 풀네임으로 부른다.[[56]](#rfn-56) 단, 어째서인지 이로하만은 고자루 선배라고 별명으로 부른다. 직접 이로하와 만나고 별명을 허락 맡았다고는 한다.[[57]](#rfn-57) キモい, 기분나빠 내지는 극혐.[[58]](#rfn-58) いいえ. 아니(요)라는 뜻.  いい 부분이 장음이라 길게 발음해야하는데, 아래로 내려갔다가 위로 올라가는 독특한 억양이 있다.[[59]](#rfn-59) '짜잔'이 맨 처음 오는줄 알고 있었다. ReGLOSS 콜라보는 매번 인삿말을 섞어서 하는 관례 아닌 관례가 있는데, 잘 보면 카나데는 항상 짜잔을 맨 처음 말하며 따라했다.[[60]](#rfn-60) 카나데는 하지메가 누르면 소리나는 장난감이라고 표현하기도 했다.[[61]](#rfn-61) 하지메가 155㎝, 카나데가 153㎝이지만 데뷔 방송 때부터 지고 싶지 않았는지 신발 포함 153+2㎝로 소개했으며, 그나마도 기적의 계산방법으로 165㎝라고 우겼다.[[62]](#rfn-62) 사실 러브레터라고 했지만, 동기로서 만남 초반에 둘의 진심이 통한 것인지 '카나데의 음악적인 부분의 능력이 너무 좋아요. 앞으로 더 친해지고 싶고, 편하게 여기면서 티키타카 공격해주면 좋아요.'라는 내용이다. 하지메는 해당 편지의 내용이 공개되자 부끄러워서 '아닌데~ 안들려~'라는 식으로 얼버무렸고 지금와서는 불공평하다며 카나데도 자신에게 러브레터를 써줘야 한다고 방방 뛰었다.[[63]](#rfn-63) 2025년 2월 기준 하지메는 다른 곳으로 이사했다.[[64]](#rfn-64) 아오가 리리카와 단 둘이서 통화를 하면 화낸다고 하며, 마인크래프트에서 카나데와 리리카가 테에테에한 분위기를 만들자 바로 달려들어 응징하며 나의 리리카에게 손대지 말라고 할 정도.[[65]](#rfn-65) '리리카는 댄스 연습할 때 춤사위가 아주머니 춤사위같아서 재밌다.' '세대차이적인 느낌으로 (카나데 기준으로는) 리리카는 분명한 언니'라고 발언. 얼핏 맥락없는 장난이 아닌가 싶겠지만 2024년 기준으로는, 리리카의 자업자득(?)으로 리리카는 마린 다음가는 줌마밈이 붙고 있다. 일단 그렇게 장난쳐놓고는 미안한지 나중 가서는 리리카에게 애교와 스킨십으로 무마한다.[[66]](#rfn-66) 리리카가 차려주는 한계밥에 대해선 상술되었던 것처럼 아직은 조심스러운 태도를 견지했다.[[67]](#rfn-67) 실제 첫 후배로는 홀로라이브 EN 소속의 Justice가 있었으나 지역 및 언어적인 문제가 있다보니 자주 만나거나 소통하기 어려운 사이였다.[[68]](#rfn-68) 참고로 카나데가 이야기하길 니코의 엉덩이는 너무 말라서 본인 취향이 아니었다고, 밥 좀 많이 먹으라는 이야기를 했다. 그걸 본 니코가 [X](/w/X)에다 방송 후기글도 남겼다.[[69]](#rfn-69) 어느 날 카나데가 오프라인에서 니코와 대화한 일이 있었는데 이때 '니코가 자신이 멘겐에서만 말했던 내용을 알고 있었다'라며 뭔가 무섭다는 반응을 보인 적이 있다.[[70]](#rfn-70) 물론 카나데가 [섹드립](/w/%EC%84%B9%EB%93%9C%EB%A6%BD) 면역이 없는 걸 아는 니코는 섹드립을 포함하지 않고 담백하게 작성하겠다고 밝혔다.[[71]](#rfn-71) 다만 카나데는 '후배를 엄마로 두는 것은 선배로서 위엄이 서지 않는다'라며 스우를 엄마로 받아들이는 것은 보류했다.[[72]](#rfn-72) 정작 그날 Golf It 2회전 결과 전부 비비가 꼴찌가 되었다.[[73]](#rfn-73) 그러나 정작 신춘 게임제 당일 카나데가 순수 피지컬로 1위를 차지하였고 비비는 3위에 그쳤다.[[74]](#rfn-74) 비비가 나이는 카나데보다 많아서 카나데를 여동생이라 부른다. 카나데는 비비를 직접적인 여동생으로 지칭한 적은 없으나 직속 후배로서 동생뻘 정도로 보고 있고, 본인이 노엘의 딸로서의 정통성이 우선한다고 여기고 있어서 동상이몽.[[75]](#rfn-75) 치하야가 노래 관련해서 상담하고 싶은 선배로 카나데를 뽑아 연이 닿게 되었다. [몰카 키리누키](https://youtu.be/aBgrE2IDiTI?si=ApFBm6ix5X6gphJ2)[[76]](#rfn-76) 보통 뭔가 당했을 때 바보 토끼(バカウサギ), 망할 토끼(クソウサギ)로 부르며, 영문을 알 수 없는 상황에선 그냥 토끼(ウサギ)라고만 한다.[[77]](#rfn-77) 2025년 6월 15일, 노엘이 방송에서 카나데에게 노엘 선배말고 노엘마마라고 부르라고 불합리화게 화를 냈었다는 [썰](https://youtu.be/bRarQEiv1J8?si=oYYKBxY4vglOeNce)을 풀었다.[[78]](#rfn-78) 2025년 7월 4일, REPO 콜라보에서 폴카에게 많이 친분을 쌓았으니 선배를 떼도 괜찮다고 허락받은 이후 포우포우라 부르게 되었다.[[79]](#rfn-79) 사실 [모리 칼리오페](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98)가 언급한 바에 따르면, 홀로라이브는 멤버를 뽑을 때 다른 사람들과 조화를 잘 이룰 수 있을지를 중요시한다고 한다. 그래서 타인과 갈등을 빚을법한 인물들은 애시당초 인터뷰에서 떨어뜨린다고. 옆동네 [니지산지](/w/%EB%8B%88%EC%A7%80%EC%82%B0%EC%A7%80)가 워낙 많은 인원을 뽑다보니 같은 기수조차도 따돌림이나 뒷담화를 하다 발각되어 졸업한 이들이 꽤나 있는것에 비해 홀로라이브는 이런 갈등이 거의 없는 것도 이런 이유로 보인다.[#](https://www.youtube.com/watch?v=VFzg7MGxXNY)[[80]](#rfn-80) 특히 홀로라이브 내에서 뮤지션의 길을 추구하는 스이세이에 대해 '홀로라이브를 이끄는 대선배'라는 인식을 가지고 있다.[[81]](#rfn-81) 다만 AZKi는 카나데를 딸이 아니라 아들로 취급하고 있다.[[82]](#rfn-82) 참고로 페코라의 경우 그전까지 스튜디오에서 어쩌다 지나치면 인사만 한 정도라 교류가 없었다고 말해 나중에 2025년 6월 쯤에 수록 녹화를 하던 중에 만나 이야기를 나눈 것이 첫 교류였다고 추정되었었다. 그런데 페코라가 2025년 6월 21일 방송에서 밝히길, 2025년 1월 11일 페코라와 미오가 주최한 홀로라이브 가위바위보 대회에서의 수록 녹화에서 카나데가 자기가 대회에 참여하는 게 아닌데도 스튜디오에 찾아와 페코라에게 인사를 건넸다고 한다. 즉, 이미 한 번 오프라인에서 교류를 가진 적이 있음에도 카나데가 이를 깜빡해 여태까지 페코라와 교류가 없었다고 착각한 것.[[83]](#rfn-83) 안타깝게도 이 오프 콜라보는 카나데의 인터넷 요금 장기 미납으로 인한 인터넷 회사와의 계약 해지 문제가 발생해 취소되었다.[[84]](#rfn-84) 이때 카나데는 자기가 소라의 손을 깍지껴서 잡았다며 매우 기뻐하면서 손을 씻지 않을 거라고 트윗을 올렸다가 소라의 "씻자(๑╹ᆺ╹)?"라는 답변을 받아 결국 마지못해 손을 씻는다는 답변을 하는 콩트를 보였다.[[85]](#rfn-85) 그날 데이트에서 카나데는 이전에 AZKi에게 제안했던 것처럼 팔짱끼기를 제안했는데 소라가 그걸 받아들였다고 한다.[[86]](#rfn-86) 카나데의 50만 구독자 달성 기념 역도츠마치에서 밝히길, '꿈을 향해 일직선으로 올곧게 나아가는 부분'이 어른스러워 보였다고 한다.[[87]](#rfn-87) 사실 이 팔짱끼기도 AZKi는 별 생각이 없이 어떤 자세를 취했는데, 카나데가 "아, 선배가 같이 팔짱 끼자고 하는 거구나!" 라고 생각하고 낀 것.[[88]](#rfn-88) 이와 달리 비슷한 위치인 소라의 경우, 카나데와의 만남 초반부터 거리감이 가까웠는데다가, 그마저도 너무 빠르게 좁혀와서 굉장히 당황했다고 한다. 소라 본인은 일단 낯을 가리는 성향에 상대를 천천히 알아가며 거리를 좁히는 스타일인데, 카나데의 이런 거리감에 아찔함을 느꼈다고.[[89]](#rfn-89) 여담으로, 카나데가 창고에 온 엔더맨을 잡아내자 AZKi가 듬직한 우리 아들이라고 표현해 카나데가 놀라기도 했다.[[90]](#rfn-90) [마인크래프트](/w/%EB%A7%88%EC%9D%B8%ED%81%AC%EB%9E%98%ED%94%84%ED%8A%B8) 하드코어, [ARK: Survival Evolved](/w/ARK:%20Survival%20Evolved), [Grand Theft Auto V](/w/Grand%20Theft%20Auto%20V), 2025 다이아 서버[[91]](#rfn-91) 특히 [青と夏](/w/%E9%9D%92%E3%81%A8%E5%A4%8F) 커버나 [GREATEST](/w/GREATEST(hololive))가 굉장히 마음에 들었다고 한다. 그 영향인지 카나데의 노래 영상에 '미코의 도츠마치 방송을 보고 들으러 왔다'라는 댓글들이 간혹 보인다.[[92]](#rfn-92) 특히 첫 오리곡인 GREATEST의 MV가 어른의 사정으로 불가피하게 나오지 못하고 있는 상황임에도 거기에 대해 마음을 크게 쓰기는커녕 '뭐 이런 일도 있지' 하고 덤덤히 넘기는 것이 인상 깊었다고 한다.[[93]](#rfn-93) 처음으로 카나데 [골든 리트리버](/w/%EA%B3%A8%EB%93%A0%20%EB%A6%AC%ED%8A%B8%EB%A6%AC%EB%B2%84) 썰이 나온 게 미코의 잡담 도중이다.[[94]](#rfn-94) 장시간 노래를 부르는 것은 정식 데뷔한 전문 가수들에게도 체력적으로 매우 힘든 일로 2시간 가량의 라이브 공연에서 20곡 이상을 넘기는 경우가 드물다.[[95]](#rfn-95) 그리고 카나데는 스이세이의 조언대로 병원에 가서 검진을 받은 결과 목이 부었다는 진단을 받았다고 한다.[[96]](#rfn-96) 카나데는 홀로멤 중에서도 다른 멤버들과 교류한 썰을 잘 풀지 않는 멤버 중 하나로 유명하다.[[97]](#rfn-97) 카나데의 스이세이 성대모사가 코멧 짱과 흡사한 하이톤의 귀여운 목소리인데, 스이세이는 카나데와 만나면 평소와 다른 목소리톤으로 "카나데 이눔아~"(=こらぁぁ~) 하며 장난을 걸어온다고 한다. 이 부분에서 영향을 많이 받은 것으로 보인다.[[98]](#rfn-98) 전에 카나데와 게임하며 통화하던 중 카나데가 뭔가 바삭바삭 씹고 있는 소리가 들리길래 무슨 소리냐고 물어보니 카나데가 생라면을 저녁 대용으로 먹고 있다는 걸 알게 되어 제대로 밥을 챙겨먹으라고, 하다 못해 레토르트 식품이라고 먹으라고 잔소리를 했다고 한다. 그 결과 [카나데에게 밥 먹이는 부대](https://x.com/suisei_submati/status/1914353463632568461)라는 트윗을 올리면서 제대로 카나데에게 밥을 먹이겠다는 예고를 했고, 카나데를 자기 집에 초대해 샤브샤브를 먹였다고 한다.[[99]](#rfn-99) 해당 DM은 마치 아저씨가 보냈다고 해도 될 정도로 이모티콘이 지나치게 많았고, 반말로 내용을 막 쓰기까지 했다.[[100]](#rfn-100) 이름이 아니라 성에 -짱을 붙이는 건 하아토가 먼저 시작했다고 한다. 싫다고 하는데도 계속하자 자기도 하아토의 성에 -짱을 붙여버린 게 그대로 이어진 것.[[101]](#rfn-101) 다만 카나데는 어디까지나 열정적인 듀얼리스트들을 밈으로만 알 뿐 유희왕 자체는 몰랐기에 이것이 마음에 걸려 죄책감을 가졌고, 2023년 시스터 마린의 고해실에서 이에 대한 고해성사를 하기도 했다. 나중에 2024년 카나데의 신년 도츠마치 때 해당 건을 언급했고, 스바루는 오히려 멋대로 단정지어서 미안했다며 '그럼 차근차근 알아가면 된다'라는 대인배스러운 마인드를 보여주었다.[[102]](#rfn-102) AZKi와 스이세이 또한 엄마 포지션이긴 하지만 생각보다 카나데가 AZKi와 스이세이를 엄마라고 자주 일컫지는 않기 때문에 공식 엄마까지는 아니다.[[103]](#rfn-103) X를 통한 공지에 스바루는 ["엄마들에게 연락하도록 하세요"](https://x.com/oozorasubaru/status/1863494250006262143)라는 답변을 신속하게 달아준 후에 바로 연락을 주었다.[[104]](#rfn-104) 카나데의 X에 스바루 관련 클립과 일러스트를 리트윗한 것을 어렵지 않게 찾아볼 수 있을 정도로, 카나데 쪽에서도 스바루 관련 검색을 하는 등 스바루에 대한 관심이 적지 않은 것으로 보인다.[[105]](#rfn-105) 카나데와 스바루가 모녀 관계를 비롯해 여러모로 비슷한 계열의 이미지를 지녀서 그런지 2025년 2월, 약 7년만에 '스바토모'의 공식 이미지가 공개된 이후로 카나데의 상징인 '병아리'가 스바루 및 스바토모들과 같이 그려진 팬아트도 늘어났다.[#1](https://x.com/wugedou579/status/1893352466852520283?t=InWfk6AF07G4IHpuibV-Ew&amp;s=19)[#2](https://x.com/shikadamon/status/1904079586285195766?t=zIsbkE3OhC5k5QFqejnh1Q&amp;s=19)[#3](https://x.com/ninono_shido0/status/1940254520078135298?t=PDDuHdJ954xmmyu6JL9NSw&amp;s=19)[[106]](#rfn-106) 공교롭게도 스바루가 방송에서 이런 이야기를 한 시점부터 [우이](/w/%EC%8B%9C%EA%B5%AC%EB%A0%88%20%EC%9A%B0%EC%9D%B4)와의 콜라보, 드라마송 노래 방송 릴레이 참여, [TV아사히](/w/%ED%85%8C%EB%A0%88%EB%B9%84%20%EC%95%84%EC%82%AC%ED%9E%88) 공식채널 출연 등 외부 일정이 늘어난 정황으로 미루어 보아 카나데가 먼저 조언을 구한 걸로 추측된다.[[107]](#rfn-107) 이때 카나데가 후레아를 보고 "직접 보니까 (키가) 작으시네요"라고 천진난만하게 말해 후레아를 빵 터지게 했다.[[108]](#rfn-108) 이는 2024년 10월 26일 오하스바에서 나온 내용으로, 스바루 / 노엘 / 후레아 / 카나데 넷이서 삼겹살 집을 갔는데 후레아가 "카나데, 이거 먹을래? 이건 먹을 수 있어?" 같은 말을 했다고 하며 이때의 표정도 즐거워보였다고 한다.[#](https://youtu.be/FgxgsRqNdzw)[[109]](#rfn-109) 또한 카나데는 그녀를 통해 거유파라는 걸 입증하기도 했다.[[110]](#rfn-110) 오오카 재판은 일본 [에도 막부](/w/%EC%97%90%EB%8F%84%20%EB%A7%89%EB%B6%80) 시대 인물인 오오카 타다스케(大岡忠相)에서 유래된 말로, 에도에서 정[봉행](/w/%EB%B4%89%ED%96%89)직을 역임하던 당시의 행정능력과 공정한 재판으로 칭송받던 설화에서 따온 것이다. 현대 사학계에서는 실제로 오오카의 역할이 그렇게 크지는 않았을 것으로 보는 중이지만, 어쨌든 관용어구로는 굳어졌기 때문에 '솔로몬의 재판' 혹은 '포청천의 재판'과 비슷한 류의 표현으로 쓰이고 있다.[[111]](#rfn-111) 참고로 노엘이 카나데와 제대로 친해졌다고 느낀 지점은 홀로 ARK 서버에서의 수달 찾기라고 한다.[[112]](#rfn-112) 실제로 노엘은 자신을 통해서 홀로라이브에 입문하지만 그대로 자기 오시는 되지 않는 멤버나 리스너의 모습을 상당히 자주 봐왔던지라 이에 대해 상당히 내적 자신감이 떨어진 상태였다. 그런데 카나데는 노엘을 향해 그야말로 전긍정으로 좋아하는 모습을 보여주니 노엘 입장에서 카나데를 귀여워하는것도 무리는 아니다.[[113]](#rfn-113) 만작 콜라보에서 노엘이 자신의 소세지 레전드 닉네임이 [음X](/w/%EC%9D%8C%EA%B2%BD)이라고 밝히자 잠시 굳어버리더니 "노엘 선배...? 돌아가도 되나요?"라는 말을 꺼냈다. 그걸 들은 노엘이 굉장히 당황했는지 얼른 수습하는 모습을 보여줬으며 그 뒤로는 카나데 앞에선 절대 [섹드립](/w/%EC%84%B9%EB%93%9C%EB%A6%BD)을 꺼내지 않는다.[[114]](#rfn-114) 마린의 엄마 캐릭터 RP는 '히스테리 부리는 [과부](/w/%EA%B3%BC%EB%B6%80)'로, 그 행동 스탠스가 기본적으로 화가 난 [노하라 미사에](/w/%EB%85%B8%ED%95%98%EB%9D%BC%20%EB%AF%B8%EC%82%AC%EC%97%90)와 같은 행동을 보인다. 이런 캐릭터를 바탕으로 어느 멤버에게나 실제 만나서는 잘해줘놓고, 방송에서는 방송각을 위해서 몰아붙이는 등의 티키타카를 주로 해왔다. 그 이중적인 모습을 아쿠아가 여러번 폭로하기도 하였고, 방송에서는 아쿠아를 아싸라고 쥐어잡듯 잡는 모습 때문에 아쿠아는 한결같이 친절하고 잘해주는 노엘을 보고 "노엘이 엄마였으면 좋겠다"라는 발언이 한 적이 있었다. 그리고 이후에 아쿠아의 엄마 자리를 두고 마린-노엘 간의 엄마 자리 경쟁전이 있었던 적이 있는데, 마린-카나데의 관계 역시 유사한 티키타카, 엄마 경쟁전에 있어서 노엘의 급부상 등으로 보면 마린-아쿠아 관계하고도 큰 차이가 있지 않은 듯. 나름 신경써서 고른 샤브샤브 고기가 카나데 입맛에 안 맞을까봐 전전긍긍하며 신경써줬던 모습이 폭로당했던 적이 있다. 누가 일단 물어보면 방송상의 생모를 마린으로 대답하는 것도 아쿠아와 카나데가 마린의 딸로서 가진 공통점이기도 하다.[[115]](#rfn-115) 애초에 스바루가 말했듯이 카나데는 타인을 어떻게 대하면 좋을지 파악하는 능력이 뛰어나다. 더군다나 카나데가 그렇게 존경하는 마린이라면 가만히 마린과의 관계 문제를 방치할 리가 없다. 무엇보다 마린은 앞서 아쿠아가 말했듯이 방송과 별개로 오프라인에서 잘 챙겨준다.[[116]](#rfn-116) 페코라가 자신을 '엄마'라고 칭하자 이전 같았으면 엄마가 늘어난다고 더 좋아했겠지만 '이 이상 엄마를 더 늘리면 마린 엄마가 질투심으로 이상해져 버린다'라는 말을 꺼내면서 사실상 받아들이지 않았다. 사실 페코라와의 접점이 이전까지 많지 않았던 것도 있었지만 마린의 반응도 신경을 쓰고 있는 것으로 보인다.[[117]](#rfn-117) 해당 도츠마치 방송에서 카나데가 엄마고 노엘이 딸이니 노엘에게 있어 마린은 할머니라는 논리로 나온 것이다.[[118]](#rfn-118) 스바루와 페코라도 카나데를 컨셉상 페코라의 후계자로 취급한다. 너무 페코라를 닮아갈까봐 스바루가 불안해하기도.[[119]](#rfn-119) 2025년 1월 9일 마인크래프트 서버에서 한바탕 페코라와 투닥댄 후 다음 날 페코라가 밝히길 디스코드로 장문의 사과문을 보냈다고 한다. 이에 대해 페코라는 계정을 탈취당한 거냐며 진심으로 당황했다고.[[120]](#rfn-120) 사실 카나데가 스바루에게 남긴 메세지는 다쟈레(언어유희 말장난)였는데 하필 그 내용이 응원 메세지여서 '나도 저런 글 받고 싶네~ 페코라는 엄마 느낌이 없는건가?' 같은 말을 했다. 카나데는 최근 일본어 실력이 많이 늘은 것에 대한 자부심을 느끼며 방송도중에 여러가지 말장난을 하는데, 하여 페코라가 해당 글을 보고 감동이었다는 식으로 이야기하자, 말장난 센스가 대단하다는 칭찬을 받는 줄 알고 착각했다.[[121]](#rfn-121) 페코라가 엄마 입후보에 슬그머니 나선 게 다소 뜬금없어 보이긴 하지만, 이전에 사용했던 홀로라이브 마인크래프트 서버에서 마린의 버섯집에 카나데가 써놓은 편지를 보고 오해아닌 오해를 한 부분도 계기로 작용했다. 마린을 포함 다른 멤버들이 마인크래프트 접속이 뜸했던 가운데, 카나데 혼자 마인크래프트에서 소일거리를 하며 마린의 물자를 훔쳤었다. 그래놓고 티키타카각을 위해 즐거운(?) 마음으로 장난스러운 편지를 킥킥 거리면서 쓴 것. 그런데 그러한 맥락을 모르는 페코라가 그것을 문장 그대로 보니, 엄마랑 놀고 싶어하고 엄마의 사랑을 갈구하는 애처로운 편지로 읽게 되는 바람에 '마린 얘가... 왜 이렇게 자기 딸내미를 방치했지? 가여워라...'라는 생각을 내내 하게 되었다. 거기에 마치 유치원생이 조부모나 부모에게 '오래오래 사셔야 해요'라고 사랑을 표하는 듯한 스바루를 향한 편지까지 읽게 되어 '카나데가 타지에서 와서 사랑이 고프구나.'라고 단단히 착각하게 되어 나도 엄마가 되어주마라는 식으로 나서게 된 맥락이 있는 것[[122]](#rfn-122) 시청자들의 반응도 당혹스럽기는 매한가지로, 일단 '어디까지 하나 지켜보자'라는 태도를 취하고 있다. 카나데의 공인 엄마 또는 엄마에 준하는 자격자들은 방송 외의 오프라인 영역에서도 같이 만나 식사를 하거나 같이 놀거나 고민 상담을 해주는 등의 교감이 있었다는 공통점이 있는데, 대표 아싸인 페코라가 그런 부분이 가능할 지 흥미진진하게 지켜보는 중.[[123]](#rfn-123) 직전에 모성애와 육아에 대한 이야기가 나왔는데 마침 카나데가 등장한 것도 페코라가 엄마를 자청하는 요소로 작용한 것으로 추정된다.[#](https://youtu.be/OgOTpzlP6E4?si=uXn7RvvQmol1gNuB)[[124]](#rfn-124) 홀로라이브로 데뷔하긴 했지만 음악가로 성공하고 싶어하는 꿈을 숨기지 않는 모습, 다소 엄한 가정환경 속에서 자기 꿈을 실현하고자 일찍 집을 나왔다는 점 등 자신과 닮은 점이 보이는 듯.[[125]](#rfn-125) 카나타의 캐릭터가 굉장히 밝고 명랑해보이지만 실제로는 홀로라이브 내에서 상당히 알아주는 아싸로, 의외로 인간 관계에 있어서 상당히 소심한 편. 카나데와의 관계가 소원해졌다고 생각해 일시간 의기소침해졌던 것으로 보인다.[[126]](#rfn-126) 특히 카나데가 GTA 5 스토리 모드를 시작한 것은 같이 식사 모임에 갔던 라미의 추천에 의한 것이었다고 한다.[[127]](#rfn-127) 참고로 초반엔 워낙 사람이 없었던 탓에 라미가 2번이나 전화를 거는 해프닝이 있었다. 이때 라미가 역도츠마치 관련 노하우를 전수해주어 초반 이후로는 역도츠마치가 순조롭게 진행됐다.[[128]](#rfn-128) 이전에는 시온도 있었으나, 2025년 4월 26일에 졸업하여 아쉽게도 시온과의 케미는 기대할 수 없게 되었다.[[129]](#rfn-129) 이때 스이세이도 인터넷이 끊겨봤으며 심지어 재가입 불가 판정으로 다른 인터넷 회선에 가입한 적이 있다고 고해성사를 하게 되어, 이 셋이 인터넷 끊긴 3인방으로 엮이게 되었다. 그런데 나중에 밝히길 스이세이는 카나데를 위로하기 위해 인터넷이 끊긴 거라고 거짓말을 했다고 밝혔으며 실제로는 전기가 끊겼다고 한다.[[130]](#rfn-130) 알다시피 모모스즈 가에서 [멜](/w/%EC%9A%94%EC%A1%B0%EB%9D%BC%20%EB%A9%9C)이 계약 해지된 상태라 멤버가 둘밖에 없는데 카나데가 영입된다면 다시 3자매가 된다. 마침 카나데는 멜과 마찬가지로 금발이다. 다만 겉은 멍청하게 보여도 사실 방송 바깥은 물론이고 방송 내에서도 가끔씩은 똑똑한 면모도 보여줘 알고 보면 자신들과 다른 부류라는 느낌을 받다 보니 모모스즈 가에 들이기에는 고민이 된다고 한다.[[131]](#rfn-131) 네네의 입장에선 처음으로 후배와 단둘이 갖는 식사 자리라고 한다.[[132]](#rfn-132) 2025년 1월 31일, 방송에서 네네가 후일담을 풀었는데 샤브샤브가 아니라 야키니꾸를 먹었다고 밝혔다. 2인석을 예약했는데 서로 얼굴을 마주보고 앉는 자리가 아니라 마치 커플석처럼 둘이 나란히 앉아서 식사를 했다는 이야기를 했다. 둘이 얼굴이 거의 붙어있었는데, 카나데가 "네네 선배 향이 좋으시네요~" 말했다고. 네네가 선배로서 멋지게 밥을 쐈는데, 계산할 때 너무 긴장해서 말을 절었다는 썰까지 풀었다.[[133]](#rfn-133) Rust 홀로서버에서 보탄과 카나데에 의해 언급된 조합명. 명칭 자체는 보탄이 먼저 지었다.[[134]](#rfn-134) 우마이봉이 너무 많은 나머지 카나데가 하지메와 오프 콜라보를 하면서 먹는 방송까지 할 정도였다.[[135]](#rfn-135) 그 당시 카나데는 부패 경찰 컨셉을 잡고 카지노나 다른 유흥업소에 자주 가는 것으로 농땡이를 피는 모습을 보였을뿐만 아니라 부족한 게임 실력 탓에 게임을 제대로 이해하지 못하고 사고를 치기 일쑤였다. 이런 상황이 반복되자 처음에는 덤덤했던 시청자들 중 일부가 점차 카나데에 대한 불만을 드러내기 시작했다.[[136]](#rfn-136) 실제로 보탄은 카나데를 타이른 후에 그녀가 떠나자 시청자들에게 '헤이트 관리'라고 밝혔다.[[137]](#rfn-137) 호와미코가 만든 섹시 가든의 테에테에 방에서 보탄이 카나데의 좋은 점으로 늘여놓은 게 ① 파천황이라 웃김 ② 노래를 잘 함 ③ 누구에게나 거리낌 없이 들이댐 ④ 파천황 같으면서도 실제로는 눈치를 잘 살피고 남이 싫어할 만한 행동은 하지 않음 ⑤ 열심히 활동함이다.[[138]](#rfn-138) 2024년 12월 24일, 첫 콜라보에서 즉흥적으로 귀엽다고 지은 이름.[[139]](#rfn-139) 라프나데로 줄여불러도 된다.[[140]](#rfn-140) 이때의 비하인드를 밝힌 카나데의 썰에 의하면 처음에 오렌지 주스가 묻은 파자마 차림으로 사내를 돌아다니는 모습을 보고 처음엔 누군지 못알아보고 직원이라 착각해 인사를 나눴는데 밍숭맹숭한 반응이 나오자 자신이 인사를 제대로 못한 건가 싶어 다시 인사를 나눴고 그때가 되어서야 라플라스라는 걸 알고 크게 놀라며 당황해했다고 한다.[[141]](#rfn-141) 라플라스가 새해 첫 잡담 방송에서 이에 대한 후일담을 풀었는데, 카나데가 먼저 "라프라프땅, [갓필드](/w/%EA%B0%93%ED%95%84%EB%93%9C)에서 붙어봤으니 다른 게임으로도 콜라보 하자"라고 제안을 해왔다고 말했다. 그래서 라플라스 본인은 아소비대전을 해본 적 없다고 밝히니까 카나데가 "엣... 거짓말이지...? 콜라보 같은 거 많이 하잖아? ...라프라프땅 미안!"이라는 식으로 말해서 본인은 스위치가 그동안 없었으니 못했을 뿐이라고 [대답](/w/%EB%B3%80%EB%AA%85)했다고.[[142]](#rfn-142) 라플라스 본인은 라프땅, 라프사마, 라프쨩, 라프쨔마까지 별의별 호칭은 다 들어봤지만 라프라프땅이라고 부르는 사람은 카나데가 처음이라고 한다.[[143]](#rfn-143) 틀린 말은 아닌 것이, 카나데는 자기가 깊은 친근감을 느끼는 대상에게는 상당히 막 대하거나 튕기는 경향이 있다. 대표적으로 아오, 라플라스, 코요리가 있다.[[144]](#rfn-144) 아소비대전 콜라보 이후 라플라스 쪽에서 유독 강한 어조로 카나데에 험한 말을 쓰는 것이 크게 줄어들었다. 물론 험한 말을 쓰는 것은 라플라스의 RP를 살린 티키타카이긴 하지만 라플라스 쪽에서 카나데를 상당히 의식하고 있다는 것은 확실.[[145]](#rfn-145) 카나데는 루이의 이런 모습에 큰 감명을 받아 후배에겐 돈을 아끼지 않는다고 한다.[[146]](#rfn-146) 장난식으로 버거운 듯한 반응을 보였는데, 루이에게는 딸 포지션 멤버가 이미 둘이나 있다. 라플라스와 로보코이며 사석에서 말 잘듣고 똑부러지는 라플라스가 의외로 손이 안가는 딸, 로보코가 손 많이 가는 딸내미 포지션으로 있다. 카나데까지 딸로 수용하면 딸이 셋이나 되는 셈이다.[[147]](#rfn-147) 최초는 하아토.[[148]](#rfn-148) 첫 번째는 [타코야끼](/w/%ED%83%80%EC%BD%94%EC%95%BC%EB%81%BC), 두 번째는 [쿠키](/w/%EC%BF%A0%ED%82%A4).[[149]](#rfn-149) 정황상 코보와 관계가 있을 것으로 추정된다. 코보와 카나데가 개인적으로 디스코드까지 할 정도로 친분이 있기에 코보를 통해 소개를 받았을 것으로 보인다.[[150]](#rfn-150) 2024년 1월 16일 아사코요에서는 “코보 쨩이 (마침내) 진짜를 만났다”라고 정리했다.[[151]](#rfn-151) 특히 홀로라이브 마인크래프트 ID컵에서 카나데가 늦잠을 자서 지각하고 자신이 선배들에게 폐를 끼쳤다는 죄책감 때문에 울음을 터뜨리자 코보가 따뜻하게 다독여주는 훈훈한 분위기를 만들어내기도 했다. 6th 페스 때에는 혼자서 밥을 먹고 있는 카나데 곁에 가서 같이 밥을 먹기도 했다고 한다.[[152]](#rfn-152) 코보의 2024년 12월 31일 신년 방송 중 카나데가 방송이 켜져 있던 것도 모르고 코보에게 디스코드로 연락한 일이 있었다.[[153]](#rfn-153) 나머지는 하아토와 라플라스 정도가 있다.[[154]](#rfn-154) 유독 지지만 헷갈려서 선배라 부를 때가 있다.[[155]](#rfn-155) 이때 이 자리에는 카나데 / 칼리뿐만 아니라 라오라 / 코보도 있었는데 대화의 대부분이 영어 뿐이었던터라 대화를 따라가지 못했던 카나데를 칼리가 통역해주며 원활하게 대화할 수 있었다고 한다.[[156]](#rfn-156) 이나에 의하면 스튜디오에서 마주칠 때 가끔 이런 식의 티키타카가 오고 간다고 한다.[#](https://youtu.be/oen4O5GsuZk?feature=shared)[[157]](#rfn-157) 특히 이나는 마인크래프트 신서버에서 비비를 발견하자 그대로 숨어 대화도 못 거는 모습을 보여준 전적이 있다.[[158]](#rfn-158) 2025년 7월 3일 콜라보 방송에서 즉석으로 정한 해시태그인데, 3개의 해시태그 후보를 걸고 시청자 앙케이트 투표를 한 결과 압도적 1위로(...) 선정되었다.[[159]](#rfn-159) 버튜버 상의 마마지만 스바루와의 콜라보를 위해 3D 모델까지 준비할 정도로 친하고, 6년간 스바루 외에는 버튜버 디자인을 맡은 적이 없었다 보니 실제로도 엄마와 딸 같은 관계다.[[160]](#rfn-160) 우이 쪽에서 스바루의 딸이 아니냐고 물으며 '스바루의 딸이 맞다면 카나데쨩은 내 손녀'라는 뉘앙스를 풍기며 적극적으로 나왔다. 다만 처음에 카나데가 '우이 할매(ういババ)'라고 정면으로 박아버려서(...) 우이에게 '워딩이 강하다'라고 한 소리 듣고 정정된 것이긴 하다.[[161]](#rfn-161) 데뷔 에피소드[[162]](#rfn-162) 3주 연속 출연[[163]](#rfn-163) 주로 왼쪽 방향인 점도 동일[[164]](#rfn-164) 이러한 밈의 연장선으로 1주년 노래 방송에서 카나데가 술에 취하자 니지카가 [키쿠리](/w/%ED%9E%88%EB%A1%9C%EC%9D%B4%20%ED%82%A4%EC%BF%A0%EB%A6%AC)가 됬다.라는 드립이 나오기도 했다.[[165]](#rfn-165) 이를 듣고 스우가 "입맛이 나름대로 어른스럽다"고 반응했다. 물론 카나데답게 이를 꼬투리 잡아 스우와 WWE를 펼치긴 했지만. 그 밖에도 초코 케이크도 좋아한다고 한다.[[166]](#rfn-166) 마인크래프트 콜라보 당시 타카네 루이가 매운 맛 마니아라는 것을 모르고 불닭볶음면 약팔이를 하다가 걸린 적이 있다. 한편 친구A의 경우 보통 불닭도 아니고 그 핵불닭을 맛있다며 싹싹 비우는 가공할 입맛의 소유자이다.[[167]](#rfn-167) 2024년 마리오 카트 대회에서 (게임이기는 하지만) 움직이는 것만 보이면 달려드는 동물적인 본능과, 3쿠션으로 커브를 도는 솜씨, ‘길 따윈 아무래도 좋다. 자신만의 길을 개척하는 것이 바로 카나데’라는 상여자스러운 마인드를 보여줘 이를 납득시켰다.[[168]](#rfn-168) 9월 25일 작성한 애니미디어 설문지, 11월 9일 ReGLOSS 라디오 프로필에서 시간차를 두고 반복적으로 쓰인 것으로 볼 때 일회성이 아니라 꾸준히 밀고 싶은 [다쟈레](/w/%EB%8B%A4%EC%9F%88%EB%A0%88)로 보인다.[[169]](#rfn-169) 여기서 보이스의 내용이란 보통 [가치코이](/w/%EA%B0%80%EC%B9%98%EC%BD%94%EC%9D%B4)를 부리는 내용이기에 듣는 사람에게 애정을 보여준다는 거라 가치코이에 대한 거부로 보일 수도 있지만, 이에 카나데는 중요한 질문이라고 하며 가치코이 지향은 아니지만, 그렇게 생각하는 팬을 무리하게 그만두라고 할 생각이 없으니 있는 그대로 냅둬도 된다고 한다.[[170]](#rfn-170) 다만 2025년 5월 23일 잡담 방송에 의하면 운영 측에서 간절히 부탁하자 마음이 약해져 보이스 녹화를 수락했다고 한다. 막상 보이스 녹화를 해보니 생각했던 것보다는 재미있었다고. 물론 [홀로그라](/w/%ED%99%80%EB%A1%9C%EA%B7%B8%EB%9D%BC) 최근 에피에 주역으로 나오는 거 보면 일상 연기를 선호하는 모양이다. [[171]](#rfn-171) 오랜만에 복귀한 하아토가 '기억 상실' 상태라, 자기가 원래 뭐하는 사람이었는지 멤버들과의 통화로 알아가는 형식의 RP 도츠마치다.[[172]](#rfn-172) 당시 경쟁률이 15,000:1이라고 한다.[[173]](#rfn-173) 국어(일본어)는 당연히 원어민보다 밀릴 수밖에 없고, 사회 과목은 일본 역사를 포함하고 있는데다 일본 사회 내용이라 일본 생활이 두 달밖에 안 되고 따로 공부하지 않은 카나데에게는 풀기 어려웠다.[[174]](#rfn-174) 다만 대부분의 경우 피지컬로 해결하려고 하기에 두뇌파의 모습은 찾아보기 힘들다.[[175]](#rfn-175) 1학기 정도만 다녔으며, 대학교에 들어가서도 친구 한 번 사귀지 않았다고 한다.[[176]](#rfn-176) 참고로 의외로 몸이 뻣뻣하다고 하며 스트레칭 반년만에 겨우 다리를 들어올릴 수 있다고 했다.[[177]](#rfn-177) 참고로 하지메도 카나데의 댄스실력에 대해 좋다고 여기며 카나데가 [트위스트 스텝](/w/%ED%8A%B8%EC%9C%84%EC%8A%A4%ED%8A%B8#%EC%B6%A4)을 밟자 "너 그 춤 어디서 배웠어?"라고 묻자 카나데는 그냥 췄다는 말에 자기보다 한 수위일지도 모른다는 생각이 들었다고 한다. 카나데가 트위스트 스텝을 아는 건 아마도 [상하이 트위스트](/w/%EC%83%81%ED%95%98%EC%9D%B4%20%ED%8A%B8%EC%9C%84%EC%8A%A4%ED%8A%B8)의 영향인 듯하다.[[178]](#rfn-178) "귀사의 개가 되겠습니다!" 라는 가사의 노래이다.[[179]](#rfn-179) 일본의 OTT는 저작권 문제로 한국어 자막을 지원하지 않는다.[[180]](#rfn-180) 특히 리리카의 경우 무려 30초 간 계속 만지는 모습을 보여주었다.[[181]](#fn-181) 그런데 엉덩이를 만지는 약간 붕뜬 느낌이 드는 거 보면 리리카 안쪽은 엉덩이가 더 큰 듯. 최근엔 몸 냄새까지도 맡았다.[[181]](#rfn-181) 이러한 점에 오마에라는 질투심으로 넌 진짜 회사에 돈내고 가라 라는 농담을 꺼냈다.[[182]](#rfn-182) 물론 자신의 엉덩이도 상당히 이쁜 편인데 데이브레이크 의상을 보면 걸을 때 골반을 튕기듯이 걸어간다. [[183]](#rfn-183) 옷을 입지 않은 채로 발가벗은 엉덩이[[184]](#rfn-184) 물론 가끔 [가슴을 만지기](https://x.com/ichijouririka/status/1896762014434992620)도 한다.[[185]](#rfn-185) 카나데 / 리리카 / 라덴 / 니코 / 비비 참여[[186]](#rfn-186) 오카유도 처음엔 카나데 앞에서 주의하는 모습을 보였다가, 마인크래프트 신서버에서 자주 마주치게 되면서 은근슬쩍 [섹드립](/w/%EC%84%B9%EB%93%9C%EB%A6%BD)의 수위를 높여가고 있다.[[187]](#rfn-187) 스바루, 노엘, 라미[[188]](#rfn-188) 참고로 카나데는 가슴보다 '샤브샤브를 사주겠다'라는 말에 넘어갔다. 이걸 오해한 노엘이 자신이 카나데에게 줄 스프에 '갓 짜낸'이라는 섹드립을 집어넣기도.[[189]](#rfn-189) 스바루의 치마 속을 들여다보려는 마츠리, 완전 누드가 되어 전신이 모자이크 처리된 마린 등[[190]](#rfn-190) 카나타도 [무유](/w/%EB%AC%B4%EC%9C%A0) 수준의 가슴을 자랑하는 대신, [하의실종](/w/%ED%95%98%EC%9D%98%EC%8B%A4%EC%A2%85)과 [꿀벅지](/w/%EA%BF%80%EB%B2%85%EC%A7%80)를 보유하고 있으며, 특히 3D 모델링에서 [이 부분](https://www.reddit.com/r/Hololive/s/2njIwMLNgh)이 도드라진다. 둘 다 키도 비슷한 탓에 체형적으로 굉장히 유사한 편. 덕분에 이름 때문에 카나시코 드립이 겹치는데다, 실제로 시코단이 끌리는 어필 포인트까지 완벽하게 일치한다.[[191]](#rfn-191) 미코는 심지어 카나데의 [리트리버 팬아트까지 업로드했다.](https://x.com/mikochisub/status/1923390327907287334?t=wOlm30iEkl1oGXSW0v71yQ&amp;s=19)[[192]](#rfn-192) 미코 / 스이세이 / 아키 / 시온 / 스바루 / 노엘 / 와타메 / 네네 / 라미 / 보탄 / 루이 / 후와모코 / 카나데
+
+![크리에이티브 커먼즈 라이선스](/img/cc-by-nc-sa-2.0-88x31.png)
 
 이 저작물은 [CC BY-NC-SA 2.0 KR](//creativecommons.org/licenses/by-nc-sa/2.0/kr/)에 따라 이용할 수 있습니다. (단, 라이선스가 명시된 일부 문서 및 삽화 제외)
 기여하신 문서의 저작권은 각 기여자에게 있으며, 각 기여자는 기여하신 부분의 저작권을 갖습니다.
@@ -761,22 +1107,22 @@ wZYMnyDJ
 나무위키는 백과사전이 아니며 검증되지 않았거나, 편향적이거나, 잘못된 서술이 있을 수 있습니다.
 나무위키는 위키위키입니다. 여러분이 직접 문서를 고칠 수 있으며, 다른 사람의 의견을 원할 경우 직접 토론을 발제할 수 있습니다.
 
-[](/RecentChanges)* [최귀화42초 전](/w/%EC%B5%9C%EA%B7%80%ED%99%94)
-* [길채현/인간관계44초 전](/w/%EA%B8%B8%EC%B1%84%ED%98%84/%EC%9D%B8%EA%B0%84%EA%B4%80%EA%B3%84)
-* [Planespotters45초 전](/w/Planespotters)
-* [코무라 쥰코45초 전](/w/%EC%BD%94%EB%AC%B4%EB%9D%BC%20%EC%A5%B0%EC%BD%94)
-* [원예림49초 전](/w/%EC%9B%90%EC%98%88%EB%A6%BC)
-* [Back to the Dawn50초 전](/w/Back%20to%20the%20Dawn)
-* [예스페르 린스트룀51초 전](/w/%EC%98%88%EC%8A%A4%ED%8E%98%EB%A5%B4%20%EB%A6%B0%EC%8A%A4%ED%8A%B8%EB%A3%80)
-* [PARTY.exe51초 전](/w/PARTY.exe)
-* [2025 LoL Champions Korea/라이즈 그룹/3라운드52초 전](/w/2025%20LoL%20Champions%20Korea/%EB%9D%BC%EC%9D%B4%EC%A6%88%20%EA%B7%B8%EB%A3%B9/3%EB%9D%BC%EC%9A%B4%EB%93%9C)
-* [Moonlight destiny55초 전](/w/Moonlight%20destiny)
+[](/RecentChanges)* [최귀화55초 전](/w/%EC%B5%9C%EA%B7%80%ED%99%94)
+* [random processing56초 전](/w/random%20processing)
+* [류마57초 전](/w/%EB%A5%98%EB%A7%88)
+* [김도연(2003)57초 전](/w/%EA%B9%80%EB%8F%84%EC%97%B0(2003))
+* [서기관(제5인격)1분 전](/w/%EC%84%9C%EA%B8%B0%EA%B4%80(%EC%A0%9C5%EC%9D%B8%EA%B2%A9))
+* [인천터미널역1분 전](/w/%EC%9D%B8%EC%B2%9C%ED%84%B0%EB%AF%B8%EB%84%90%EC%97%AD)
+* [버스 안에서1분 전](/w/%EB%B2%84%EC%8A%A4%20%EC%95%88%EC%97%90%EC%84%9C)
+* [익스트랙션 슈터1분 전](/w/%EC%9D%B5%EC%8A%A4%ED%8A%B8%EB%9E%99%EC%85%98%20%EC%8A%88%ED%84%B0)
+* [민지선/작중 행적1분 전](/w/%EB%AF%BC%EC%A7%80%EC%84%A0/%EC%9E%91%EC%A4%91%20%ED%96%89%EC%A0%81)
+* [Sol's RNG/아우라 목록1분 전](/w/Sol's%20RNG/%EC%95%84%EC%9A%B0%EB%9D%BC%20%EB%AA%A9%EB%A1%9D)
 
-[](#)* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
+[](#)* [공군 수송기, 소통 착오로 일본 영공 침범…日전투기 출격](#)
+* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
 * [돈스파이크, '전과 3범'인데 마약 예방 방송?…"공익 목적 OK" vs "퇴출해야" 갑론을박 [엑's 이슈]](#)
 * [신정환, '도박 논란' 슈에 분노 "자기도 해놓고…불법·합법을 따져" [엑's 이슈]](#)
 * ["징계 지연에 가해자 승진…서울교통공사서 성희롱 2차 피해"(종합)](#)
-* [공군 수송기, 소통 착오로 일본 영공 침범…日전투기 출격](#)
 [더 보기](#)
 
 [](https://play.google.com/store/apps/details?id=net.umanle.namuwiki)[](https://apps.apple.com/app/id1623510780)
@@ -789,7 +1135,7 @@ wZYMnyDJ
 * Su zona horaria es Asia/Seoul
 * Impulsado por the seed engine
 
-This site is protected by reCAPTCHA and the Google [Privacy Policy](https://policies.google.com/privacy) and [Terms of Service](https://policies.google.com/terms) apply. This site is protected by hCaptcha and its [Privacy Policy](https://www.hcaptcha.com/privacy) and [Terms of Service](https://www.hcaptcha.com/terms) apply. 
+This site is protected by reCAPTCHA and the Google [Privacy Policy](https://policies.google.com/privacy) and [Terms of Service](https://policies.google.com/terms) apply. This site is protected by hCaptcha and its [Privacy Policy](https://www.hcaptcha.com/privacy) and [Terms of Service](https://www.hcaptcha.com/terms) apply.
 
 [](#s-1)[](#s-2)[](#s-3)[](#s-4)[](#s-5)[](#s-6)[](#s-7)[](#s-8)[](#s-8.1)[](#s-8.2)[](#s-8.3)[](#s-8.4)[](#s-8.5)[](#s-9)
 
