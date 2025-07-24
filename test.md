@@ -6,7 +6,7 @@
 
 [](#)
 
-&nbsp;
+
 ![](/skins/espejo/e52c3a71b2aba22408c3.png)
 
 # [오토노세 카나데](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)
@@ -28,120 +28,255 @@
 * [hololive/소속 크리에이터](/w/%EB%B6%84%EB%A5%98:hololive/%EC%86%8C%EC%86%8D%20%ED%81%AC%EB%A6%AC%EC%97%90%EC%9D%B4%ED%84%B0)
 [더 보기](#)
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 [![Hololive 프로덕션 로고](//i.namu.wiki/i/pss7kJ5c5lJ1E6u2TTGkSTvuNznhqOJ9cPK9U4eKr7GvCqB97L1JqJ0hxQI2NdKfaXlF5fkSy0zXxH1geZ3g8t6KMr8q-ej_nbuXGR94Lmikqr8aPE2yiB5Jt68wzO9c9Es4GAfPJI-Rdn8w7Nq0nA.svg)소속 멤버](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84)
-hololive JP
-| 0기생토키노 소라로보코 씨AZKi사쿠라 미코호시마치 스이세이 |
-| 1기생아키 로젠탈아카이 하아토시라카미 후부키나츠이로 마츠리 |
-| 2기생나키리 아야메유즈키 초코오오조라 스바루【졸업생】미나토 아쿠아【졸업생】무라사키 시온 |
-| hololive 게이머즈시라카미 후부키오오카미 미오네코마타 오카유이누가미 코로네 |
-| 3기생 - Hololive Fantasy우사다 페코라시라누이 후레아시로가네 노엘호쇼 마린 |
-| 4기생 - holoForce아마네 카나타츠노마키 와타메토코야미 토와히메모리 루나【졸업생】키류 코코 |
-| 5기생 - holoFive, 네포라보유키하나 라미모모스즈 네네시시로 보탄오마루 폴카 |
-| 6기생 - 비밀 결사 holoX라플라스 다크니스타카네 루이하쿠이 코요리카자마 이로하【방송 활동 종료】사카마타 클로에 |
+hololive JP[0기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#0%EA%B8%B0%EC%83%9D)[![tokino sora thum...](//i.namu.wiki/i/pE-Ao_1PotKo71Fm7_xTeC8YeIs9v0E9HzVq5JC_AEMMabPjzsIUmMmhWExUMJnVcH85Jd7ICsy8D7IzOtYhk8RBJVqfG0E5xneCVOthinvEqoTmLVVXXN4q8u20yzPp2eD2amZ-9KKrwtdd3s21PA.webp)토키노 소라](/w/%ED%86%A0%ED%82%A4%EB%85%B8%20%EC%86%8C%EB%9D%BC)
+[![roboco-san thumb](//i.namu.wiki/i/DlCQWWEjI9xutl2IdpdCFX8ncWuW8UVHlJYsLz9cjP4b2u1z0XuuVpY3twq_FR7yFuRii1nJIhk7xxAqtQgiTJxVOva5BWmLGFQHuL3NsoBGsCpSM0WT7LJ79_8NonNTnTwgwsxPCKzTQuhkK0BjwQ.webp)로보코 씨](/w/%EB%A1%9C%EB%B3%B4%EC%BD%94%20%EC%94%A8)
+[![AZKi list thumb](//i.namu.wiki/i/JJzRSND6lmfdiyInUWboMv5ygCx8nJrbznbVTK3bGT3Pi2Gy-EJM_bZBAYdC93p_OcWVMh099wOO_oMiIUPfeUjYhPElgPxRTJqmJdzwmnoib1qQ0GZ070AOm_OS2_cK5XUX4g8tWzHD7HkGSPBQxA.webp)AZKi](/w/AZKi)
+[![Sakura-Miko thum...](//i.namu.wiki/i/ApViQ6ef45-HOOGCZuYGcEE8xDn4Do20op-jIQz5S7Em4bmmKF0Vmpn1yzVt2xUL-aRv5SC1f5KSgV9Bq6OIIre5JiAs6nFUqPVV3ItmmmRnh8x4CkIVp_vHB_SIX8Xg1qKmccaHkxJAq2x-mbjzxg.webp)사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)
+[![Hoshimachi-Suise...](//i.namu.wiki/i/1zSZKJGjE0hSAlCljkn-8dbKmw_1sC3qm2zQXi1BdZkQ3xuXlQTxC4e_kV8dQMiXWJmQUBPd_TPMnPtS_PYtqwO0i28MG3-nIrQIkMljJF9aIVkUJOkkMuVhSyZRNP1C3oL-i35C2pE3tscr0ZNHNg.webp)호시마치 스이세이](/w/%ED%98%B8%EC%8B%9C%EB%A7%88%EC%B9%98%20%EC%8A%A4%EC%9D%B4%EC%84%B8%EC%9D%B4)
 
-hololive ID
-| 1기생 - AREA15아윤다 리스무나 호시노바아이라니 이오피프틴 |
-| 2기생 - HOLORO쿠레이지 올리아냐 멜핏사파볼리아 레이네 |
-| 3기생 - HoloH3RO베스티아 제타카엘라 코발스키아코보 카나에루 |
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#1%EA%B8%B0%EC%83%9D)[![Aki-Rosenthal li...](//i.namu.wiki/i/-yedQhETpt0umFw4zPq5lLezFoTDTksRTQXeiBKjb3Q8FQWcOV7VytnLs3iFYolGMd1mjOgyDad-0zojZvrU2RVSaHYHVANq1SRz206DbkQN4yoQNy4VZV7XGdIF-q_OqmmhyDcFDWJTJxPlIgpCig.webp)아키 로젠탈](/w/%EC%95%84%ED%82%A4%20%EB%A1%9C%EC%A0%A0%ED%83%88)
+[![Akai-Haato list ...](//i.namu.wiki/i/jeTWmanC4dvhkq6nyWJho_fTixaXxPiODhBTqhvdSlgkihAa3v1Xjd6xbojwuHlQIGTnEqvOGKn_BavNP8wfF2w3IKFKNmvBUC3UbfGCnzmiTgFfKxAmlmyku9Wp7TIGA2eSJLsN936zce0pQ9BJEQ.webp)아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)
+[![Shirakami-Fubuki...](//i.namu.wiki/i/VOh7j2Pp9x5C_0JuP7Pq_ZBej5IHSfDe_n7czwuMtB60xGU1C3sYXG69uUiXTKG3yhf0mpe9yY99BplNrvVfniUN6-kr7HmpfYI2fkF3Hgbkpew7h1p6nsKpjFvamG3u1zplakJywmMgxc5pIHi8eQ.webp)시라카미 후부키](/w/%EC%8B%9C%EB%9D%BC%EC%B9%B4%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
+[![Natsuiro-Matsuri...](//i.namu.wiki/i/05D1fA_Xj-RIfIMtYIsX8-MlEZJM-bgBi0-qhQqIviEMQ-JAbPnN8ZwtNlSiqUnObTHR7f98JUIviDrWAC6tkplfWXBuRVQavUXGTYlWlsHvv50eYWIo3PcUNgWsY6EcnsOGb-VOgaRCNa4ZzGzubg.webp)나츠이로 마츠리](/w/%EB%82%98%EC%B8%A0%EC%9D%B4%EB%A1%9C%20%EB%A7%88%EC%B8%A0%EB%A6%AC)
 
-hololive EN
-| Myth모리 칼리오페타카나시 키아라니노마에 이나니스【방송 활동 종료】왓슨 아멜리아【졸업생】가우르 구라 |
-| Council【졸업생】츠쿠모 사나 |
-| PromiseIRyS오로 크로니하코스 벨즈【졸업생】세레스 파우나【졸업생】나나시 무메이 |
-| Advent시오리 노벨라코세키 비쥬네리사레이븐​크로프트후와와 어비스가드모코코 어비스가드 |
-| Justice엘리자베스 로즈 블러드플레임지지 무린세실리아 이머그린라오라 판테라 |
+[2기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#2%EA%B8%B0%EC%83%9D)[![Nakiri-Ayame lis...](//i.namu.wiki/i/k-SNkUY8771VjjCr4H8_dLxVe7HcCzwe1gRbmsVbcm4NH0XDqLJavy6knwnqERVzIrmibIvhAxDeibZ8k_IJkSaBzAjs40CYF2yRhUwBSqKr1BoyGtsNv3L6j3hqpzZ4kdbS26UqY1omOiDOKWokyw.webp)나키리 아야메](/w/%EB%82%98%ED%82%A4%EB%A6%AC%20%EC%95%84%EC%95%BC%EB%A9%94)
+[![Yuzuki-Choco lis...](//i.namu.wiki/i/J7LhsVByTihwjFWl1PR3ncRX6fusPenYA2JGGaJWjREygzh2xYvji5cFqbe57Az9U837drI3FLhspTgesd4TsrQHI6AsSf4qYxq0934bJROzsQiryzDk5t8ecL3T363btJbKRCEKFJmIK5B397-3IQ.webp)유즈키 초코](/w/%EC%9C%A0%EC%A6%88%ED%82%A4%20%EC%B4%88%EC%BD%94)
+[![Oozora-Subaru li...](//i.namu.wiki/i/M356j00rjqcw86cf1R9SmGKfyLjectvsBialQgWD2yMYShub9QVKk3xqENdGnwRBOFVUdBeoywVLaot4D2Zfl87mD9Trj96kbjtSzONcEIxzQY4zcFW_mkHBf6Fuq-VOEB6-qRy0mpvH9DjfUuvNKw.webp)오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)
+[![Minato-Aqua list...](//i.namu.wiki/i/KNl6hUlzq1RHTvICg_Ev1bZBlX016IezHBzhHaWqxzUs9-g49IJ1FFc71scGVNGWkWgUTVwteu4ndGD-191lKrtaxpnjZLHB2v3cIcFIf4-B724drML0kXIFjDQgpTNvoXx_mYmrIthUpOsJnFDIiw.webp)【졸업생】미나토 아쿠아](/w/%EB%AF%B8%EB%82%98%ED%86%A0%20%EC%95%84%EC%BF%A0%EC%95%84)
+[![shion thumb 02](//i.namu.wiki/i/jAUfhwNJlim6mDFsn0noyQfmRhQRW0eIhmuKZs37p-2Nq33AafnynXA6x1m3e1XVJL6BNYCIDnzmCfdixIvhtWGDPaMkSsHVntf9d5MgI8o_PePH8wtiVqiRlVZCJZfEZZ3Qu0txrqLtQjz3eoiO7w.webp)【졸업생】무라사키 시온](/w/%EB%AC%B4%EB%9D%BC%EC%82%AC%ED%82%A4%20%EC%8B%9C%EC%98%A8)
 
-hololive DEV_IS
-| ReGLOSS히오도시 아오오토노세 카나데이치조 리리카주우후테이 라덴토도로키 하지메 |
-| FLOW GLOW이사키 리오나코가네이 니코미즈미야 스우린도 치하야키키라라 비비 |
+[hololive 게이머즈](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20%EA%B2%8C%EC%9D%B4%EB%A8%B8%EC%A6%88)[![Shirakami-Fubuki...](//i.namu.wiki/i/VOh7j2Pp9x5C_0JuP7Pq_ZBej5IHSfDe_n7czwuMtB60xGU1C3sYXG69uUiXTKG3yhf0mpe9yY99BplNrvVfniUN6-kr7HmpfYI2fkF3Hgbkpew7h1p6nsKpjFvamG3u1zplakJywmMgxc5pIHi8eQ.webp)시라카미 후부키](/w/%EC%8B%9C%EB%9D%BC%EC%B9%B4%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
+[![Ookami-Mio thumb](//i.namu.wiki/i/kxX_WEgqauezyCkcEJy2Brr1by9brGu16sT2Yxe_TzENUon978lgRYeibjCvw7r1JbsJmviUsL8FsXCnBvSVUpsG8zyd8b6BDn1G_XN8r3ffPuacGkl3XwdO8tPILuj0e9wyr5XiVZu4Fi1d8YJ2ZA.webp)오오카미 미오](/w/%EC%98%A4%EC%98%A4%EC%B9%B4%EB%AF%B8%20%EB%AF%B8%EC%98%A4)
+[![Nekomata-Okayu l...](//i.namu.wiki/i/6ua_hv-5X9boCsIhCPX1UFr_Ql7BUFE3xsrgNlxbv8AuQqmOQLdK8ftEtQ7QouLFEhqKzVZn5tu09J1X6XQNaBA6Y1RWNEX7OdXkXLvYPxSg0_hXjYumBDyaZ5qw7vAYspEBGJTkGRYYqZOQZXkzjg.webp)네코마타 오카유](/w/%EB%84%A4%EC%BD%94%EB%A7%88%ED%83%80%20%EC%98%A4%EC%B9%B4%EC%9C%A0)
+[![Inugami-Korone l...](//i.namu.wiki/i/1bgMIvL2LZjwGZdhrxQyRO3rPw24Fxco_32IUz0TxsqHSkz0jw-k2UmRC8m4iYF-pT3JL4kGYLwLeay_cElPHM8xtRIzqsG0NvsBw2gDm8on09ySz_5rGEYsEurv8xY3-43qdqpyytHYi3hfwQ1kHw.webp)이누가미 코로네](/w/%EC%9D%B4%EB%88%84%EA%B0%80%EB%AF%B8%20%EC%BD%94%EB%A1%9C%EB%84%A4)
+
+[3기생 - Hololive Fantasy](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20Hololive%20Fantasy)[![Usada-Pekora lis...](//i.namu.wiki/i/F7e5wJCKFRP_QfSru3v3klqTAkBphEarVaFsEO8QKJrZJa2RePQLuUQIsRY1yiKWr396D-oyzvvjl1HSf7FkGsLoDPCX1gGmdTRm145B9y_tv8DtWmT0CsCUxo07oKpIXh6ZcqipvTnow5mP4QWbQA.webp)우사다 페코라](/w/%EC%9A%B0%EC%82%AC%EB%8B%A4%20%ED%8E%98%EC%BD%94%EB%9D%BC)
+[![3 フレア](//i.namu.wiki/i/fuo6Qbz0_TYguurkAqOCqEwnA0YZqfCF3VTwhv3nSVYkujh_Oiyg-fNTAHdK_7GCn4VwzkRSIaeCFE-DxCnUAGCfEZqmWklBksZCuB1vEhi2rVapaf_aWriPKBQlrYIFRDGFmS2F8LJOAHy9tg2L0Q.webp)시라누이 후레아](/w/%EC%8B%9C%EB%9D%BC%EB%88%84%EC%9D%B4%20%ED%9B%84%EB%A0%88%EC%95%84)
+[![Shirogane-Noel t...](//i.namu.wiki/i/G8E970Lz_vPqliJZE9SQ-RXVfEzK3UxtXT3CIWRUIwq0CJb6abNqwldlw7ALS5rfE_dHfwAUXzYNyZEMDPrHXG2HKM7CRO-ojiVCCbYdm8RVubpoCaDel3Ewbs8tSmKp8_fyb9FzhYeYGwe5GBkPjw.webp)시로가네 노엘](/w/%EC%8B%9C%EB%A1%9C%EA%B0%80%EB%84%A4%20%EB%85%B8%EC%97%98)
+[![Houshou-Marine l...](//i.namu.wiki/i/iINhltvKKjiRB8H79klLTxc7_X_lZMEIgivPH1CJ-AvvLUODPHE18JwjdLFYV6zU1NPBZiDgEUvgzqKe1TOs0blVjlFPUHmpdecTxBfBJdvbNd0_uLWSxL8RX9yuSqROWveGbqlUjQ3stFxrDx7pew.webp)호쇼 마린](/w/%ED%98%B8%EC%87%BC%20%EB%A7%88%EB%A6%B0)
+
+[4기생 - holoForce](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#4%EA%B8%B0%EC%83%9D%20-%20holoForce)[![Amane-Kanata lis...](//i.namu.wiki/i/Cmo7-CzjCm57ynM3RzUyXu7S_38Y8k4LmsSA4AbcBZX_Aug7rTZiHyOjzEI6bmqHeNzz_my-dX_6tsbXT60vY3jvgVVPg1R8FE-a2n7GCif9lpSaV8m7Vl4z1nwvk_PJR4HKnuSAS8tCMX0yBZykqw.webp)아마네 카나타](/w/%EC%95%84%EB%A7%88%EB%84%A4%20%EC%B9%B4%EB%82%98%ED%83%80)
+[![watabe icon](//i.namu.wiki/i/P9VnjIK8kku_01HLDW_E9P2Ob0H6URxCwE9tOjUlYWILRaIwiga53XmYouRHY94C2fiuZqLh8rMKh2xzm_OBbv7pDsXqAq0m7kF1NRYJUoknIJ80u5HFyYOFAnPun08E9Q5Cie3k1Xzbx8MaCL5Zqg.webp)츠노마키 와타메](/w/%EC%B8%A0%EB%85%B8%EB%A7%88%ED%82%A4%20%EC%99%80%ED%83%80%EB%A9%94)
+[![Tokoyami-Towa li...](//i.namu.wiki/i/ctBZnFH0YX26nVEhyTawij-3HLUxxoCTs5t2nkOIRU8FQ7D81xFC_tk_yYI6j_5uZTd1x7i0Hta2ogA4djgeoaRjjPQCIBbzSh2WYSqdn07PVsrT-f5a4WEac4kJ5BOCiMbvFco5RB4pVUH8-1a84g.webp)토코야미 토와](/w/%ED%86%A0%EC%BD%94%EC%95%BC%EB%AF%B8%20%ED%86%A0%EC%99%80)
+[![Himemori-Luna li...](//i.namu.wiki/i/N_KmEB1c0x8FLbdk6NFL4_1r26QmuO3Gsx0OIHs-3fLC075Le7q8v2KHUfuFsTQlTd9Tnp0_qufZOUFwPbNzXD8s_RMaZxYU3s_cn1hUZJ5WcwffvXRlbjyjegt6POu9cyBXFq7RVEeVC9bb3MOrJg.webp)히메모리 루나](/w/%ED%9E%88%EB%A9%94%EB%AA%A8%EB%A6%AC%20%EB%A3%A8%EB%82%98)
+[![kiryu coco thumb](//i.namu.wiki/i/9e7Jn9QgLBrrm1sbf6ngkSNU77uqJ_RQd7cFsc-OPE7Xmtg822BPR5Hettu330WiVXh4620uYSZR3D7t2Ah2DdHsQKkdTTClL-bl3Y_cCgDzdi1o-bMSX-KFQzF5K17Eo2mVtjab4QUV8GEU1wjM7w.webp)【졸업생】키류 코코](/w/%ED%82%A4%EB%A5%98%20%EC%BD%94%EC%BD%94)
+
+[5기생 - holoFive, 네포라보](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#5%EA%B8%B0%EC%83%9D%20-%20holoFive%2C%20%EB%84%A4%ED%8F%AC%EB%9D%BC%EB%B3%B4)[![Yukihana-Lamy li...](//i.namu.wiki/i/GjEJQrX5EYx05gz5xym1qc-KuTfOWHMbZbQtfAxsNJq45fK39YUXihrLmRosCOz073jxnaI5o0sgjO2CVw3zYJqHTI0LsAny9fw762iR04qTcrFlArB2RmSbpQ_Lr0Yeldu8zRVOVxDOLeCpjLDOoA.webp)유키하나 라미](/w/%EC%9C%A0%ED%82%A4%ED%95%98%EB%82%98%20%EB%9D%BC%EB%AF%B8)
+[![Momosuzu-Nene li...](//i.namu.wiki/i/DHJkzxjZ-JAnyUBqE6WA3v-JJuZIGfKSP3qeTovtK8L031HPhO6mCq47b5RhuVSVrkUMeSv3Xof0GbNQ9ZVb1X_O2BRmI9Gp_r1tg7fcJAOjBrynRdjr2k69URaUi02qhmASQXIMKyI6Bp5XjVB6EA.webp)모모스즈 네네](/w/%EB%AA%A8%EB%AA%A8%EC%8A%A4%EC%A6%88%20%EB%84%A4%EB%84%A4)
+[![Shishiro-Botan l...](//i.namu.wiki/i/zOWlBecNVE5ara5X7Q_n2hlAITw4EVlKnEjKoU-y541ngt5GVkWxWNhG5eELvft33zdWVomiXbKY6YPsHXsAWWY5KwIClWvfBBEBqK6-jBvgVMliNK9NuWk_Mg0VXlUWeyiwSNGHoshRKPexnu7dZQ.webp)시시로 보탄](/w/%EC%8B%9C%EC%8B%9C%EB%A1%9C%20%EB%B3%B4%ED%83%84)
+[![Omaru-Polka list...](//i.namu.wiki/i/MlH7D09qxIf0AKEQctrRmP0bNWlnAqjCBrKwjLuCgqqxzRIRp-k3xNXRkIUhz4BH8smCgX2bJm0btkrZBTQpLvGupYRhoXw0LamQnF804FrhDJjVQ5jxfwXQSQUDsp8BelXa3aS2E9w26b1mHKxKFQ.webp)오마루 폴카](/w/%EC%98%A4%EB%A7%88%EB%A3%A8%20%ED%8F%B4%EC%B9%B4)
+
+[6기생 - 비밀 결사 holoX](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#6%EA%B8%B0%EC%83%9D%20-%20%EB%B9%84%EB%B0%80%20%EA%B2%B0%EC%82%AC%20holoX)[![La-Darknesss lis...](//i.namu.wiki/i/ey1Wex_j6ZhcUm0kSXqfOQNDp6203lP3ut5ot6GJlCGhFYNGSItegNevRAuRfaKneHbKYJD9a7YZlh1WBbqhOy3SR4VFW6osyU8OdE-45Dc2cxKOk-o5gdxEGCQC_bPxaxCGwoTFNHHgFQJUx0L5_A.webp)라플라스 다크니스](/w/%EB%9D%BC%ED%94%8C%EB%9D%BC%EC%8A%A4%20%EB%8B%A4%ED%81%AC%EB%8B%88%EC%8A%A4)
+[![Takane-Lui list ...](//i.namu.wiki/i/w8FCQYL3-6IsfU-TIZHqTEbfeowoYIiRmUHLMr--fBQDzjkBoN06HSmZrvMpw5b9GljBFUlR8eIaJ_OuJdEx5wGJWJ24o3MUxcmIr-S_bxfDqHCdNZ4i4VybPMVhYMdWQBXvC2c2PyaZxT1GobuLVg.webp)타카네 루이](/w/%ED%83%80%EC%B9%B4%EB%84%A4%20%EB%A3%A8%EC%9D%B4)
+[![icon koyori](//i.namu.wiki/i/hvn2LGVKhLe0-fCZxruuKEwU-SzuE2nv-jDQjRk7I9OEY3pNSKTmz4Mq9QpBJSfFvYehkFqKdZevlBoI2x3ki2UQXrDlOph7M81v7boH0-lxIL2NLDmqj5HncTwEFKE7pMP6B9Wdzau9Na5MWFolew.webp)하쿠이 코요리](/w/%ED%95%98%EC%BF%A0%EC%9D%B4%20%EC%BD%94%EC%9A%94%EB%A6%AC)
+[![icon iroha](//i.namu.wiki/i/5JKFKWWu1wUBWukT99W-XQtdN6t8bJ8LPowgfcThkxcPGYDBwslCZoXkKCjqPGTqw00ihe2upzVBtT4oYYqovqLQ99V0YAYY8BRTWBugYfNcDL9EYENbwD6Z7RUML7IdXLqMydQxGg7indyG1Vc1vQ.webp)카자마 이로하](/w/%EC%B9%B4%EC%9E%90%EB%A7%88%20%EC%9D%B4%EB%A1%9C%ED%95%98)
+[![icon sakamata](//i.namu.wiki/i/3SbVMWxiHA8iqXXvbX-BD9AootbByaAN_gWablYmR0rNRla0-L26Vkq3V2kRDPeVXyPsn-SjMvJols35p5gxdVXfmKtMqrngqTTVgpph2wO-GdNzaof0fgb8xVYRfkjpvaL8m2HFB0C5WInyW2lJHQ.webp)【방송 활동 종료】사카마타 클로에](/w/%EC%82%AC%EC%B9%B4%EB%A7%88%ED%83%80%20%ED%81%B4%EB%A1%9C%EC%97%90)
+
+hololive ID[1기생 - AREA15](/w/hololive%20INDONESIA#1%EA%B8%B0%EC%83%9D%20-%20AREA15)[![リス-1](//i.namu.wiki/i/hSRwER6PqSIZKWQVUfECVyP0Uv67t3249h3vgRUG23xd8xg9nbMgI60jab85wquTmaN0Lu3vJTjNtNvY2PtYfJPY9p6MGVNQKNPX-Vl-hMsXSxgzZXrVZyrxTIEUhPVh5wRvX13-NaYiIhZXEp1b5w.webp)아윤다 리스](/w/%EC%95%84%EC%9C%A4%EB%8B%A4%20%EB%A6%AC%EC%8A%A4)
+[![ムーナ-1](//i.namu.wiki/i/5bqwxVC1ll18jNVcP-HlAoLpV2zBx1OxN5qCiGUITtV5Mt2o12T3XQHd-lCs_0UTVFChI-jb6vN1jjYfii76K6NCefsDtCS5qHwT9ZsXnMyBt0AHmSaatu3xVlcTuI_jVqQE3Bt9qRgCrJBEmbBgMQ.webp)무나 호시노바](/w/%EB%AC%B4%EB%82%98%20%ED%98%B8%EC%8B%9C%EB%85%B8%EB%B0%94)
+[![イオフィ-1](//i.namu.wiki/i/qdMa9m-v_y2HtH0Bkv1lamzyxf6_3SBOz-0Nhpa6zx9ZbjAjGh6s5oXZQu1Dq-kSNv933wAlK7o5URDrchFqNRSePEpP74RjqkLcL28BrRsc65IoH-a6fkz7dWdJybt5iHuIuSrWKLwmABE3zz1cPQ.webp)아이라니 이오피프틴](/w/%EC%95%84%EC%9D%B4%EB%9D%BC%EB%8B%88%20%EC%9D%B4%EC%98%A4%ED%94%BC%ED%94%84%ED%8B%B4)
+
+[2기생 - HOLORO](/w/hololive%20INDONESIA#2%EA%B8%B0%EC%83%9D%20-%20HOLORO)[![Kureiji-Ollie li...](//i.namu.wiki/i/19QZQ9fnFGGa4KZJ1Y74ARuWGua8_KrN-jlI7H3y_13LxJENDDfC3wcvcUhvmF0xsJpuVbiVDpW2OKZd-JI-EIj2sSbAGcnd_2-q4YS4aRNILLnDId4lYhkF3xk0-oVtvHw05Wylpf7A5keaCKi4oA.webp)쿠레이지 올리](/w/%EC%BF%A0%EB%A0%88%EC%9D%B4%EC%A7%80%20%EC%98%AC%EB%A6%AC)
+[![Anya-Melfissa li...](//i.namu.wiki/i/UsD16r6gOHogFgVcXAwaeoK-J8cnxmQooHfu3WlugepuObWwigoisdC6SNqLn4cZuTW1I5nq7g1noIaVepGwCRnwew5jJYvr9u09l83mgGtD_M82fIJNhm3h97E63jt4szLohuLfMl9q-K9uU_g8uQ.webp)아냐 멜핏사](/w/%EC%95%84%EB%83%90%20%EB%A9%9C%ED%95%8F%EC%82%AC)
+[![Pavolia-Reine li...](//i.namu.wiki/i/Gikukxu5DYLe4vvJanEY2USZHqTJgus-S9UDJMeIFYv11tbOOIIhTBoDV3uomfXVt45dPMpMHl5fh72WkW6hj1UsrhQfZ4giApU9szyUxhIuWKEGaguHQp_ErjkRMOSHlxZPZJwZCl4CzUhXsA946w.webp)파볼리아 레이네](/w/%ED%8C%8C%EB%B3%BC%EB%A6%AC%EC%95%84%20%EB%A0%88%EC%9D%B4%EB%84%A4)
+
+[3기생 - HoloH3RO](/w/hololive%20INDONESIA#3%EA%B8%B0%EC%83%9D%20-%20HoloH3RO)[![Vestia-Zeta list...](//i.namu.wiki/i/2QMzfgm9_EpqhbFXLBkJaPI_Pkc1NJ7FVPlyAFfFVD8a_ATeAxlNT9x0wNjqZhHsgs16SPKbk_P9zRY5whBLs-PsrDQA_3czmPH-dGfhQ4G_xJPAjYzDE-65ra4yCnkPEZIG-Y3yCdwrMxi-IDg0dQ.webp)베스티아 제타](/w/%EB%B2%A0%EC%8A%A4%ED%8B%B0%EC%95%84%20%EC%A0%9C%ED%83%80)
+[![Kaela-Kovalskia ...](//i.namu.wiki/i/K1JlSkdi0z6ki_ayvgG3uLXHj2tQSxXk0uQwkmR4MvwLJVSHoC8ZcyxyEJF_UkZMEczZ3RzX7SKHQdcHP5qysjK2F1GLzDf8cv_3h84StG63Qemo4Pjha_84sMTYFlkJHULXJnhXY_xpG916WEMkEg.webp)카엘라 코발스키아](/w/%EC%B9%B4%EC%97%98%EB%9D%BC%20%EC%BD%94%EB%B0%9C%EC%8A%A4%ED%82%A4%EC%95%84)
+[![Kobo-Kanaeru lis...](//i.namu.wiki/i/POBTydluNwAKon4Hso7jV4gEYPyXQfUcq8VhhFrMAjBn9RiRftDcLBOAUOMfY2xe8nW0L2E9j_dDBFLJKF6zgu_49hlbkS2q71fEW1cVY3cb-oiRbaHbix9qy-jg1mVpRsX7Fbp6xsGoaRF-KRRaTA.webp)코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)
+
+hololive EN[Myth](/w/hololive%20ENGLISH#Myth)[![Mori-Calliope li...](//i.namu.wiki/i/mm8G6p5OxpbMQX0VC99EB1C8TTojVM6FMEBd2fv5GM_sDX5d_jCTG6rgZtcWP_BBuWAuGlMRnhSkUR465ISE7d3IJ0AHzmpm5iDcJAUGZRz2QqmgncaXiq_6fGheIshDH08OSvh2O4UQLmWrI0qc4w.webp)모리 칼리오페](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98)
+[![キアラ](//i.namu.wiki/i/moU6SdxUysNJrxud1Cr-IkIJfcm2GxyBYPoXkQ8wauvoC5Pyc5TRxh2mtzCKm9vFrIUoMzMEjfN4DZV_3qX6F4xLMfKQfiGKF6ip4_iwE342T9qz9hJG4gdx40z60y4iB_QE4bwScEUC3U1D0WLm5g.webp)타카나시 키아라](/w/%ED%83%80%EC%B9%B4%EB%82%98%EC%8B%9C%20%ED%82%A4%EC%95%84%EB%9D%BC)
+[![いなにす](//i.namu.wiki/i/VZZAlbiZWH7TvbuGh6vrcAZV792GlVvUitmOEUyyI6q1SYK9tcmrKrHckawYBt7fFg5_-q-FQDl5sXUjtHyJUXL7l3p-B52xHwkpJa3XOv5MfNkjTIotKywU2Fcy6KBUnOhE-v5AN1y0xN6U69ouPg.webp)니노마에 이나니스](/w/%EB%8B%88%EB%85%B8%EB%A7%88%EC%97%90%20%EC%9D%B4%EB%82%98%EB%8B%88%EC%8A%A4)
+[![アメリア](//i.namu.wiki/i/hkXk-UwCMJCEPvH_OrrWme0fwu7KoZs50oNAc9nvSL_8-o2kglXqO-VBkiSdRk-zlMr7-qdauOU9ffh6n744ytJdDjvyL8FkIF5VfCMou5jq48s2kfJZ_7PupfgYa7OxDaFDpe1xt2U923OH_5x7mg.webp)【방송 활동 종료】왓슨 아멜리아](/w/%EC%99%93%EC%8A%A8%20%EC%95%84%EB%A9%9C%EB%A6%AC%EC%95%84)
+[![Gawr-Gura list t...](//i.namu.wiki/i/SI-6LUtJ2lrCD1z3Uj1fvZIXrgWWFQDT0ridqqp-6MAM4NZFCAN3dxVcTIKS75JvJMVXmeGlFYkp9zdp58MeVxhUq9qTDkk303giQia9RNoOs_Fg7Q-bfxdZQi1hu7afasQzdPUq6Y8cKBDf-iCgMw.webp)【졸업생】가우르 구라](/w/%EA%B0%80%EC%9A%B0%EB%A5%B4%20%EA%B5%AC%EB%9D%BC)
+
+[Council](/w/hololive%20ENGLISH#Council)[![九十九-佐命-1](//i.namu.wiki/i/tZ62kvWeGMyR7QcGX04oeIhNreDzG0ZiafNtdqEu1d_jKOfWptZCONcOIm42L09gfvMJEqj3QpXzhdtcC3i-lFCsUQb7JKDUZ0xzESRf1qSXVTM69O4z4Fsv0T8BMT39lf7t7oUUtkiuPf2breAVBg.webp)【졸업생】츠쿠모 사나](/w/%EC%B8%A0%EC%BF%A0%EB%AA%A8%20%EC%82%AC%EB%82%98)
+
+[Promise](/w/hololive%20ENGLISH#Promise)[![IRyS new thumb](//i.namu.wiki/i/mN3JjiL0dBn0GQccReaGva1pvtzuCqzSjhhGd-SsWlkt0ZeT_TTUxmbSq7HZxY7ZPOLNsVelM-fV7qqKq9uuzSFFJ3Me9IdFBVUVrtPSRw25xP8B_xK-1THTsHiTvFvIJ4kB9MrRN_mmM-n_FiWTnA.webp)IRyS](/w/IRyS)
+[![Ouro-Kronii new ...](//i.namu.wiki/i/YdPhC3b6hMtSGt3tTmLESE2VpRPV-8Kj8TivZ84oT125tvX-vQd7poGL_gpQMfHtYQcxxBp2wZvTAmAnaSxl2i4U4waVF922m0tM8ltOVPmK11KgWfwPLP_mc85ZnAIAqro_ZPD_4-vsbZaHhk9LHw.webp)오로 크로니](/w/%EC%98%A4%EB%A1%9C%20%ED%81%AC%EB%A1%9C%EB%8B%88)
+[![Hakos-Baelz new ...](//i.namu.wiki/i/VLU2pcNC7uKBseNHCFqMekLspHxVsKTDPV9AeRrv_mQ6rM4zwxrstoSlYY2N5QIZ7W5Jwj-xYakg5Snd_7qC7uHYUy1AlZpvx33-PpcNgb8AwbOgpE5_woXVy7AOuPgSyNzs0XouC8R2cGFIwN-EyA.webp)하코스 벨즈](/w/%ED%95%98%EC%BD%94%EC%8A%A4%20%EB%B2%A8%EC%A6%88)
+[![Ceres-Fauna new ...](//i.namu.wiki/i/YkIiNLC5dsIu96KItSK4H2zhy1oGqLP-ypDxTr7wP3zJtdaGz-udEPohxl88ZaPi05cUi2ifYSmn1nt3lthpcPo1vQ4QkShB0GW-lfbZgnjlLIwtsKEQHzoe6hf6LMDrmeIM5jIFViAlNBCFkhnMig.webp)【졸업생】세레스 파우나](/w/%EC%84%B8%EB%A0%88%EC%8A%A4%20%ED%8C%8C%EC%9A%B0%EB%82%98)
+[![Nanashi-Mumei ne...](//i.namu.wiki/i/S5dL_uX8phGLikR-qlYCPmGzTHb7K4HS2cQmy2F4dw1uja-R5kG3SCEV_gVmx1vkXUfQJPLtbjL1m2Nmag4hpOM1qNupm9O7qteQZmno-sV_ULfhl_im7HJ0pbpEnueUyZiFIgtXatBgERSZHC-Apw.webp)【졸업생】나나시 무메이](/w/%EB%82%98%EB%82%98%EC%8B%9C%20%EB%AC%B4%EB%A9%94%EC%9D%B4)
+
+[Advent](/w/hololive%20ENGLISH#Advent)[![Shiori-Novella l...](//i.namu.wiki/i/NMh5M0nb9fsiOQOiMcHFJqs1-C2bdQ2Hpmm3_ZpSNXJUcbH9G9ri69zmZ9pdM9s8BK1EaBdS58mEDKEbBE_YHxhTI3A4FzlGw2QNjm03nJ_qwDdCIAJtDO0nm1gC9SoWx8VtOTFXASEw5U5Cd_trdg.webp)시오리 노벨라](/w/%EC%8B%9C%EC%98%A4%EB%A6%AC%20%EB%85%B8%EB%B2%A8%EB%9D%BC)
+[![Koseki-Bijou](//i.namu.wiki/i/EtX5NcRSvhDT8TdpBk53nLPkENaWPkl-hNbKkJXLi0hY6rBmiHsIUdK2GJDKgwDVcHPrfW5dfwvG9e4NieVezzWZvUXX5-zGhla3_2U9HIwjTkg_YM5SIQy84XuJuF05WQQtiGLojLOCYhnoC1jdIQ.webp)코세키 비쥬](/w/%EC%BD%94%EC%84%B8%ED%82%A4%20%EB%B9%84%EC%A5%AC)
+[![Nerissa-Ravencro...](//i.namu.wiki/i/tWPj_NtDJgolBg6-kcqkC90FOsNy7eWkAQP2fGl2vU0VZHlGqhAytqLG4rcZE_1d6eY30ApWE8_lEBMa8hIDEJX8LaQSjUSVPwJmJJlOj7EEkckg-4ijcggcPuFhS0AVY-BY2C5Wevci4nxtSFL52Q.webp)네리사레이븐​크로프트](/w/%EB%84%A4%EB%A6%AC%EC%82%AC%20%EB%A0%88%EC%9D%B4%EB%B8%90%ED%81%AC%EB%A1%9C%ED%94%84%ED%8A%B8)
+[![Fuwawa-Abyssgard](//i.namu.wiki/i/FVeyCKcN7pl_DSRC4ORTWm346yA7G8jyrKTka8oJYa6ULqEZtLjVUwcXV8ValZrmPPiqwDBy1dNcn8qwQLzkYqqlOab9j4PpsW2UdhppQZsA_MUOyaec65pB0bq0zTsbU07NRMXbcKFK-QyT9s_VyA.webp)후와와 어비스가드](/w/%ED%9B%84%EC%99%80%EC%99%80%20%EC%96%B4%EB%B9%84%EC%8A%A4%EA%B0%80%EB%93%9C)
+[![Mococo-Abyssgard](//i.namu.wiki/i/AtmyWaJpKucWTQmX6HlcK5yDMjggx-xf5rIrBW1oKSfxbdUmsEAaHmYRFGMfA4-9MxcsJ-UKT6FCqihPhsCr18LI3Aj3e2FDsWcQNPMAZ_E58IWzZB6yYdtPuJ103BDnkCLsNgQN0GL1q4leYg1DMQ.webp)모코코 어비스가드](/w/%EB%AA%A8%EC%BD%94%EC%BD%94%20%EC%96%B4%EB%B9%84%EC%8A%A4%EA%B0%80%EB%93%9C)
+
+[Justice](/w/hololive%20ENGLISH#Justice)[![EN3 EBRB](//i.namu.wiki/i/H8k5OlHjzWAU_3dOJ_xFl48vh52i_SPGVmWVO5geWL41X23MYzF_j2--jm7rig1pApazAXBZVqpmYCBz5VhI_fhCf9K1wasA7dTG_Syl4bwNO0UeFCcWjSBTQK64KQd4FPHhYlyD6S9WgDOt-xehqA.webp)엘리자베스 로즈 블러드플레임](/w/%EC%97%98%EB%A6%AC%EC%9E%90%EB%B2%A0%EC%8A%A4%20%EB%A1%9C%EC%A6%88%20%EB%B8%94%EB%9F%AC%EB%93%9C%ED%94%8C%EB%A0%88%EC%9E%84)
+[![EN4 gigi](//i.namu.wiki/i/Py1pRU_wR7msTyBdbkb2xfPJlHRG1UZKdfxVj_2KSeFOGQ_7yvoWJylx2d1LLXiEd-RVxpWNnh-EIY81hg8kU8B1XFrtf-nCuNZLxk-Gu4ehTu1zauL9pZsXp6KBjmJFnJcCVe9fuRYab_BbWQVCMg.webp)지지 무린](/w/%EC%A7%80%EC%A7%80%20%EB%AC%B4%EB%A6%B0)
+[![EN4 Cecilia](//i.namu.wiki/i/eYK9FHgwP1VOdmy45M7jF4qL_IzxtahKu0QySIGeWJsmn1wNeA4PoWeNiE02kFWCWPrFQ9o-b2R64xiM6kZXJ25lTGfyG9YkM5zKQR9ix-0bELBfwGJzXPdEsUdrnjd_F6KRSYhd-pWYp55GKf3tyQ.webp)세실리아 이머그린](/w/%EC%84%B8%EC%8B%A4%EB%A6%AC%EC%95%84%20%EC%9D%B4%EB%A8%B8%EA%B7%B8%EB%A6%B0)
+[![EN4 Raora](//i.namu.wiki/i/9D-KujtW1NS3NBLOUaHvUEx1vAJGQxdGQFsxU9xgOVriuqN7wBMIV_wM-FYyA4INfpjeUPNXke8C15GGiVHU7gWsCkmZUmgVqiwUjzoiVzlJmxfAIpGL38MydheKKesHyyPIoMNP872Kf6TrwonW-A.webp)라오라 판테라](/w/%EB%9D%BC%EC%98%A4%EB%9D%BC%20%ED%8C%90%ED%85%8C%EB%9D%BC)
+
+hololive DEV_IS[ReGLOSS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ReGLOSS)[![Hiodoshi-Ao list...](//i.namu.wiki/i/bCLrwQFZACD8mPxCIbxzzv7MpRrp7Q2ZK7hGk6pcYTh4J_ZETmq4f6jtaJWGbo9CJKBetedQWtj4Z9tO2g0gcRdtcUAC0Lo7Hwhg3OwuNHa1O7-cI4Bqn8OcOOuNwKb3bb2AC_622gKJTOhIV_jsqg.webp)히오도시 아오](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4)
+[![Otonose-Kanade l...](//i.namu.wiki/i/XdbuTOhj91H13CtzR9fqEr9FiCxz_lVt9rTJxUAXGOzB1klgIBySta3hjXTd4C_1mIHUD2IqhGbzm5NwsGYP-KtKdR0Te6-o49D-WNGaX7pJV947q1Zrn0fe6szYLVhkZedX35ZySIqllO7oBQynGA.webp)오토노세 카나데](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0)
+[![Ichijou-Ririka l...](//i.namu.wiki/i/qxuBTFV_DCohEJnq_Yg0nf54xfYDFVZcUr1b5qDtnMdKnqQe8uBRR1bTkE4OFO0RZNGRJfytpXeTEBRqHzGonpRboa27pM8fewvCxsq8uyx3FC8HPUx2TIK7hdUOc6LBKlDWxiPQLXxONdZFBMJw1w.webp)이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)
+[![Juufuutei-Raden ...](//i.namu.wiki/i/fjnklSm0SunOtxhc_bS1-pd4OfsQiAOHwTPtK-WM5AM6M4w5Htc4CuNb5K0byUquYMUfasYU8xzMXTBLvmtTCnOxq2Bux4XWXCUncq_u4zJIQyvp9dMPDPL0P2SwjC9LlBfqd3cNW_Uh1BGeXXy5Fw.webp)주우후테이 라덴](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4)
+[![Todoroki-Hajime ...](//i.namu.wiki/i/cXRmP3oYAwAgeMyXQdQe66m389AYgR9xvOJV9YvsOGjr0yChRUV3_fp9GIp1HI_9uNQBrwLmkeZvsMFORYdoS_9rsQkgrZM3goIx0zWpaJ9HHQLejr4jMsAmVB6abX-4TdO2yKaKNKUxwcKT50JDqg.webp)토도로키 하지메](/w/%ED%86%A0%EB%8F%84%EB%A1%9C%ED%82%A4%20%ED%95%98%EC%A7%80%EB%A9%94)
+
+[FLOW GLOW](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#FLOW%20GLOW)[![Isaki-Riona list...](//i.namu.wiki/i/uQONaTPmloDKdjxKK6DT4Ay4J5_SR5JhwjzaJ9ED-Y1laUfEMQwzC0ui2p1I8wsIH-YbI6zv4nngUMU6Y876eCYlIdD4xghD4rf30Iqi-RGi6R83VV_2Ue5frurnjFP0EGVb53-GMYTZEE7Nzs2LmA.webp)이사키 리오나](/w/%EC%9D%B4%EC%82%AC%ED%82%A4%20%EB%A6%AC%EC%98%A4%EB%82%98)
+[![Koganei-Niko lis...](//i.namu.wiki/i/IkV2F8WbeUDevY83b7Pkqk2bnBkLGQnQ6OU4nrVpRbQZqcMJ8i4D0CXjc_JiuHMi5SOIokGJaL7n9_GQjcjTYXxE83t4SKLYvRHinJqEpuCQOGFnOpAtIy5rVtid9az-mMwe5svHX3W0oKTsrdtMGQ.webp)코가네이 니코](/w/%EC%BD%94%EA%B0%80%EB%84%A4%EC%9D%B4%20%EB%8B%88%EC%BD%94)
+[![Mizumiya-Su list...](//i.namu.wiki/i/RH-wwEpvaISNblxQlvK1oDGePEebMHMPtaWa2csCHaSZQvfGbhfmRpqGD9hMTQzNUTXL2JNPDGlP8dcxqeMvQSiFyRJzHOe_O0hqPbVv-8xvCI1oWTDSmk3ObiyXog160cB8A5YTnbUq4RDa4fpv7A.webp)미즈미야 스우](/w/%EB%AF%B8%EC%A6%88%EB%AF%B8%EC%95%BC%20%EC%8A%A4%EC%9A%B0)
+[![Rindo-Chihaya li...](//i.namu.wiki/i/VdAgC07GO_G5ClnF241TAY5Pt1R1rzMyJqiKlt5xbopidoYyflqhqM9n9Hnqo-drItzXdAQRqwJdkPU_3IkluF7rgDInh_g_TJsTFcX5cPtbtMnCr9Rv-Ubh0X4AMZyB3zItSH0F6nAiVEHCMEMHZQ.webp)린도 치하야](/w/%EB%A6%B0%EB%8F%84%20%EC%B9%98%ED%95%98%EC%95%BC)
+[![Kikirara-Vivi li...](//i.namu.wiki/i/XVUgBXvLwQrKVnbbsEIKHphAaAV0ck0nqaVBU_lW0KSBCNqIlzCsVJb7-Pmj6j343GlTLgAOe-ekWD3c9ZOWWIQGfqlneLJ9-c76FCMmFmEU7vHj7uQasAfWemS3noYxshSUWUPMv9Drrh_QI3EdPw.webp)키키라라 비비](/w/%ED%82%A4%ED%82%A4%EB%9D%BC%EB%9D%BC%20%EB%B9%84%EB%B9%84)
+
+HOLOSTARS JP[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#HOLOSTARS%20JP)[![hanasaki miyabi ...](//i.namu.wiki/i/5d7lyrXCyOkzNGz4Vf8HYn2bPIvjGWumw1DeNdcaIcoQvj8aJgOJFEYQrO_M5ZKpU5Ivpigd2Y8mty4rh0mXx7CgeQJntHxYyvCM8KM5_CxFV0GorcGXWR47rHayVec1qyBVR_i8xxYDgqQcCsR1cQ.webp)하나사키 미야비](/w/%ED%95%98%EB%82%98%EC%82%AC%ED%82%A4%20%EB%AF%B8%EC%95%BC%EB%B9%84)
+[![Kanade-Izuru lis...](//i.namu.wiki/i/DEIGmDqKDexBSwzjfh5XcrTt9XUvnOuhIatbEVAmv1dZrtJ2SU0stoijRPt_csU_5niZVzflKqlrcGf6jKTuWnfxAIARDMnRaHqHYEWVWXTiDladlHVrqSgxNWHEs2DogVp9y79Zoy7lMLu7Ylad4A.webp)카나데 이즈루](/w/%EC%B9%B4%EB%82%98%EB%8D%B0%20%EC%9D%B4%EC%A6%88%EB%A3%A8)
+[![new arurandeisu ...](//i.namu.wiki/i/-964JHFnvH_2DE27NGO_7VgFLAFzcuwvkJxkNw84A85s9fJ7d79rwljGukh5Od6UUNFbbeLcvvo8RJ0NT2-aQQ8BvBnZFPLrrQrXxfeSZ1dLzDEi3cMHPP-lJ2ZL85_F2UldKNpNYKyhAMrdcQkTyg.webp)아르란디스](/w/%EC%95%84%EB%A5%B4%EB%9E%80%EB%94%94%EC%8A%A4)
+[![律可2](//i.namu.wiki/i/7EbxIOHtjc8B1zohkhTZ9unrF1vJSAqnZAfp94AlfNtIolymwgWlSooufb6oo3x7DF4cux__fqoTrSYriI8d_n5HCE0XgYexles1AyXSF3b_SZ3UwFvpaiQXGu-QpFo_pCpLwE-4aL11T73rJyv4nQ.webp)릿카](/w/%EB%A6%BF%EC%B9%B4(HOLOSTARS))
+[![kagami kira thum...](//i.namu.wiki/i/cjtaSBIGeH_H_LVy_8e-F7OWmnKkdgVno134NYSblpgtRjW7ALfcHMh0zxzf5l5NaeAjeOpgI-hXEAbkar4Wbf159LKw2XXeJBTC9lrm2rSUX2SEFgugxNiXnhm3i9PpKJHnjAnfSPuAdhmhHKWfvw.webp)【졸업생】카가미 키라](/w/%EC%B9%B4%EA%B0%80%EB%AF%B8%20%ED%82%A4%EB%9D%BC)
+
+[2기생 - SunTempo](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#2%EA%B8%B0%EC%83%9D%20-%20SunTempo)[![asuteru reda thu...](//i.namu.wiki/i/n7HJwLBsoYwgOaNxV0L2wzGJfdxAbIQMtxCzzOaFUn0jnj17BwoAgJyd1QAUuO5WLGEWWg4IJQJEnMU5pHPtBAQ8Jv8yyjEyJA-aDYI3UWL4EakThcE4A2k0auVZ2PwkBQuyHXCnFsy_3uhpVABs2A.webp)아스텔 레다](/w/%EC%95%84%EC%8A%A4%ED%85%94%20%EB%A0%88%EB%8B%A4)
+[![kishido tenma th...](//i.namu.wiki/i/AwguCZcsXp6RahEL5PYsaa2-yUgONo6-4qv1Ua1iKxrODRaOVcAt0mplUfvqLA5AHIg7CLM0Xnq8yQkZ4AYekQ9giT8yDaZROhHyo7LpbwE_DZGLzl8CJ3Dx3QYoqIIsE0G8Nyjd4oLr2vdl0L-NoA.webp)키시도 텐마](/w/%ED%82%A4%EC%8B%9C%EB%8F%84%20%ED%85%90%EB%A7%88)
+[![yugoku roberu th...](//i.namu.wiki/i/sh54k1X-vHwj1Y-jDYWoIAl_60BvCgbj327OM-4Y2aRpTRF9_ktsGVTckuXVNjthS9pIZzOna_xhrPkn4cUM5SbfoCLem9rMpWBbPfHzT72_hSHCTRIaQkXqzHKkFmvFoL7SpOJybzqLBvMVTuf9DQ.webp)유코쿠 로베루](/w/%EC%9C%A0%EC%BD%94%EC%BF%A0%20%EB%A1%9C%EB%B2%A0%EB%A3%A8)
+
+[3기생 - MaFia](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20MaFia)[![kageyama shien t...](//i.namu.wiki/i/Dkr-IIGGFiJeDjYOdtg2274y7POFgqdMTe_L1aVC8tb6q-p57_KmeMIKgTalKlCCZCeIYvxsiE1QiwWqaRsNrnS5G9Ad64lqh4oeE4t66hpDY5WUCZ4RzGcq2k40xbA308ZFVXzUMUi2DfpZr_EMuQ.webp)카게야마 시엔](/w/%EC%B9%B4%EA%B2%8C%EC%95%BC%EB%A7%88%20%EC%8B%9C%EC%97%94)
+[![oga list thumb 0...](//i.namu.wiki/i/EOHF3VwABrDHUtkWT1CvUoRPUCYBEe4P7dXXmnUR9Yvb2EHXqO9XxgUakiPllqhTUdQLc7ECyjEhqYPdTq0s2boXX23Snk9BDUHkiTuMqrB46mCFcC0d7FNw_SPGT2bdtPEwh_ye89ui-hRSnM5SEA.webp)아라가미 오가](/w/%EC%95%84%EB%9D%BC%EA%B0%80%EB%AF%B8%20%EC%98%A4%EA%B0%80)
+
+[UPROAR!!](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#UPROAR!!)[![Yatogami-Fuma th...](//i.namu.wiki/i/G77czuWgnIbrkI_o7tiLbSlAzjeF-T089lRz06yebOvlTIJ7ThYiN6qKyC-5MjsSeC6QROFj4z3av1MApGrv84hI4y47pPj6d9RSh9erByOku_D0LiUqHWX1noU10sbH5ZilxJJtSEXNNnwcVnYL8Q.webp)야토가미 후마](/w/%EC%95%BC%ED%86%A0%EA%B0%80%EB%AF%B8%20%ED%9B%84%EB%A7%88)
+[![Utsugi-Uyu thumb](//i.namu.wiki/i/wO1et5fi6quIPBDm2t-AEb2K7FTXhg2-Z3bM4PjAAkOyF1ZlTvjjULmR9FARyMHZGgPAhV1hOdbXv1fMIx7txUr8IjQhJfMKrMEZALfnT_dX0xFrrM-UV2cSTLUaeAMmRBXxUKBZfydlRzagSnxefg.webp)우츠기 우유](/w/%EC%9A%B0%EC%B8%A0%EA%B8%B0%20%EC%9A%B0%EC%9C%A0)
+[![Minase-Rio thumb](//i.namu.wiki/i/E5TGxFsCXvOG1uo2CNFpvhbyiYU6rhF-2WHb1uQa6kiOFo1OWpeJKXFvvNqCRL8nIID1M1ppog70XVP33AV_GeN9NGX4LQYXiZjcwYP_Unmn0SHMo655sA2_43RkpQijttG5MeE_ooIGDPQ6A_dZ2g.webp)미나세 리오](/w/%EB%AF%B8%EB%82%98%EC%84%B8%20%EB%A6%AC%EC%98%A4)
+
+HOLOSTARS EN[TEMPUS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#TEMPUS)[![Regis-Altare thu...](//i.namu.wiki/i/9CT3XmAg-SUxxkjhmNhCRB7xdjKPV6EA1DwvfxzfCoRzee_93I8lmh-n5fSnzq2Hsqe8ZMUxpAI2VoJsUmaaHWvZCFcVbHtWKfKkRINP6Gk3tELnFxQYUefNmGmSV1dWpEk_OMz3-9AyJAdz4B7XaQ.webp)리지스 알테어](/w/%EB%A6%AC%EC%A7%80%EC%8A%A4%20%EC%95%8C%ED%85%8C%EC%96%B4)
+[![Axcel-Syrios thu...](//i.namu.wiki/i/WMB9ReqG_a8hG0aj2Q044FLrECnvIjukvNG7IieTTvUpbynZyXTXB75WyeH1Nq5BkFNNGr3K8ZNvz81f7-5wZfos4r6ZSCE-ZdgVlhKXhIFWtaeZtDBIh4w_PgNhEN7-vIUK97hOte4Vl1U3ym49ag.webp)악셀 시리오스](/w/%EC%95%85%EC%85%80%20%EC%8B%9C%EB%A6%AC%EC%98%A4%EC%8A%A4)
+[![Gavis-Bettel lis...](//i.namu.wiki/i/6bxQLoYg3qYbFm3lVfmHkHwQBTTW3ikNFEggRFkoRJ6vQrjkdntOJaFsdUr-uzRNTWB1TipDROT4-Q4jwNrLhB9YBGsgTx7tMztyP4wMSTUOjNESFIgA7XRnwlqyT9aC6EwGzKUVfVwusHsNxcy_PA.webp)가비스 베텔](/w/%EA%B0%80%EB%B9%84%EC%8A%A4%20%EB%B2%A0%ED%85%94)
+[![Machina-X-Flayon...](//i.namu.wiki/i/jUFQNZ1GE71FlE8_YrgxmznVKd5isjz544zmgLPx7JTRu2rMuj-IjikHpr67Z8__gaWSiYupZ1W27eT7jknfg3BhPrCNnmhLya-S7CN13Rd0Mwd7jLurnFkUFuMbELm9izaq2bOBJDtk3Y2IagEFLQ.webp)마키나 X 플레온](/w/%EB%A7%88%ED%82%A4%EB%82%98%20X%20%ED%94%8C%EB%A0%88%EC%98%A8)
+[![Banzoin-Hakka li...](//i.namu.wiki/i/cvWCieAEXpsFiaB5o-DCKJ_AH_EPV5i_qt4r3ozUp5gA9LSPgYIm-q43PwZEduJjl4s-Bx8HW3tg1Cr4gXbjG9QcjdL2jlUSbyyHY-SKY7udVu7GgSNaXv5NxCLj15IRGr5dc98Em0Tr_WUuOPAVYw.webp)반조인 핫카](/w/%EB%B0%98%EC%A1%B0%EC%9D%B8%20%ED%95%AB%EC%B9%B4)
+
+[![Josuiji-Shinri l...](//i.namu.wiki/i/0kufGAQ8CSrdiIP3LeJeIJTHmCYHc4D6OJbUokZMJhHn8DAMrD9bjWFwkhmw61TXoTBnhG8k1KZwuus07YCZJ-xpr3dukCD-nyXVGBUL4inBRT5kGbLRAYhIyqF9-X0N-1DNv843vtKoYUmupuNSAA.webp)조스이지 신리](/w/%EC%A1%B0%EC%8A%A4%EC%9D%B4%EC%A7%80%20%EC%8B%A0%EB%A6%AC)
+[![Magni-Dezmondt l...](//i.namu.wiki/i/l08Npg8FPfVEwzg6xQK1LspdYrc8cAssQx5fS7C9QVNnPZ_NIEEAf-HQC_BlAQfALpLqZk9VOiUKqfXsqW60hELszEI8S43emb5XtF9wr00ffE4X_kNqad8EQcTNNw90Pk3Gf1vrMiYmB4qbu4r3HQ.webp)【졸업생】매그니 데즈몬드](/w/%EB%A7%A4%EA%B7%B8%EB%8B%88%20%EB%8D%B0%EC%A6%88%EB%AA%AC%EB%93%9C)
+[![Noir Vesper new ...](//i.namu.wiki/i/t_okPKOBuy6v3tK-gjazdcseo82U_PgmyRjUVZgbNSNcHmSGBIt4PWzV6hGnS8AYbgPiOrK9jUDWchFecjxqopGmgdQgPY7m9JnXtqzItSmzTP0U0rJH-qh4kqW-zBMIgT1QWYaRq5bcwJj2m3Rgdg.webp)【졸업생】누아르 베스퍼](/w/%EB%88%84%EC%95%84%EB%A5%B4%20%EB%B2%A0%EC%8A%A4%ED%8D%BC)
+
+[ARMIS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ARMIS)[![Jurard T Rexford...](//i.namu.wiki/i/EwiY_z1gXw5CAQ96dhonDY_BXkwvdc0HR5NOFMr2EY1kWq0EQclqe3iCIiT2ua-6Sdk_ahq4UALkHFMX0AsIOjiD9RE202GwlL_VYpbbQ4e34LqMjwfIvncFGBWU2vKwHmO-0tXexFaAJZEOsZlK4g.webp)쥐라르드 T 렉스포드](/w/%EC%A5%90%EB%9D%BC%EB%A5%B4%EB%93%9C%20T%20%EB%A0%89%EC%8A%A4%ED%8F%AC%EB%93%9C)
+[![Goldbullet list ...](//i.namu.wiki/i/l8fuWBXOQmv-MlWvm1Z3-OGB_WKF7GTXuH62WOiE3doaOOc7agHVqGaFW6gahNmHYornICmZIMXvFlx-e7OSv85UODmyN5eVOwZojoUj-cQ-EAcD_FG7d0Ss5s0JbC-YbUhzZ5bpkbSDO5yC925I0Q.webp)골드불릿](/w/%EA%B3%A8%EB%93%9C%EB%B6%88%EB%A6%BF)
+[![Octavio list thu...](//i.namu.wiki/i/fgkHAqFnPQi6ASXYL5yL0yb7lhEIjugJp39eC7oooXbGjtq6C0bIEAAJgRD3GVUQoXxIxCrYzQRL2YdSZNeezgmlFt0jGbyvthlhsH7wy4IFdyI76_qOEhr6VW76ZjQWuflXv3KDBkb0Inyd_Lyngg.webp)옥타비오](/w/%EC%98%A5%ED%83%80%EB%B9%84%EC%98%A4(HOLOSTARS))
+[![Crimzon Ruze lis...](//i.namu.wiki/i/muE2wbLz81ZVYZzZMDbumc8xe98H2Z0KtY_Fg38FiiQdCzLWDXoMxnOVhTqD3wiT-Th8A-dtODGctDLwD9G7iRovF8YiTcO5VKt6XoeUbelxnkjMFdOK0FODN43klGVGv31ODhv4HQMXwOBOE4U5lQ.webp)크림즌 루즈](/w/%ED%81%AC%EB%A6%BC%EC%A6%8C%20%EB%A3%A8%EC%A6%88)
+
+hololive AN홀로라이브 아나운서
+[![Harusaki-Nodoka ...](//i.namu.wiki/i/bs9X6PLmSo024UGaJlyA0dMKsBmVIxn3oOAXfpVNQv6R_i8ynvfEjhBZUfWg4VhHLZLzsCL4bnLw0THggs9sFnt8_KkwRfWxHaLiFQcrgfJacUUCqc_uaZebIvYhs3pE6U58D6IF3VNlma12Ihnr-w.webp)하루사키 노도카](/w/%ED%95%98%EB%A3%A8%EC%82%AC%ED%82%A4%20%EB%85%B8%EB%8F%84%EC%B9%B4)
+
+Office Staff[사무소 스태프](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%8A%A4%ED%83%9C%ED%94%84)[![A-Chan 03](//i.namu.wiki/i/efLMc14f4OyhBgVcQjEF6cSuPtTsbrId20yozi3MJBHK9tJU15K_sDhi5TfiFjs4oRQCIgHDYg1hTditY5eqkEw4ufaLLl5L2pCSZBF6HX4qhEbui_IInENCWA0Yohnvy4-YRFfR8CwXPsaaMlEnGw.webp)【퇴직】친구A](/w/%EC%B9%9C%EA%B5%ACA)
+
+이전 소속 멤버hololive JP
+
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#1%EA%B8%B0%EC%83%9D)[![yozora mel thumb...](//i.namu.wiki/i/WjVAhGWiDA5yN8MdOxTUZx3BEX89reMDppbAdzo4nxoWXcCz87mYBG1jMwndU1pmGdSuTQeKFYxF95TKB17RAgWwNSq3uRtgLCR5PtGNlPq73wcvf1bxKNROomwRTzOvsshdPzx9Gw3KgMNejldz7w.webp)【계약 해지】요조라 멜](/w/%EC%9A%94%EC%A1%B0%EB%9D%BC%20%EB%A9%9C)
+[3기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D)[![uruha rushia thu...](//i.namu.wiki/i/oCUDOWAx0LlS7glu4q0CXLPZgbZqtpeROD624CI5STq6dOz0DCanWdBCt7PlRehVpuDvQcmmT2kW_mNRfLEedjnL87WQYwoqY56_B1xRD5ByvPLr6AT5lmL4l9eAwCNEGNVZ2o3gNuQtRUwN0vkKxA.webp)【계약 해지】우루하 루시아](/w/%EC%9A%B0%EB%A3%A8%ED%95%98%20%EB%A3%A8%EC%8B%9C%EC%95%84)
+[5기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#5%EA%B8%B0%EC%83%9D)[![mano aloe thumb](//i.namu.wiki/i/PJxTOsxaexVFdZGIrpO2rRWL4_o7S6F8WFrVLeKaR42mZlShOqhUTbzr_6Rcn74zxGAADPy-wuUexHX7L-ojkcPdljIWkMCYNCb2ymNT4YT2FKgJ--Zdrrr1nuYa9EachNsSCH6vZyi5JB1Au3Zmnw.webp)【졸업생】마노 알로에](/w/%EB%A7%88%EB%85%B8%20%EC%95%8C%EB%A1%9C%EC%97%90)
+
+hololive CN
+
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN yogir...](//i.namu.wiki/i/wtPgKWbO-PnK9DARGaOFTe1hB5j_cC7USGPRYGI5ATIV41tWYU3vfcQsL6h8eEdJ-nGd30m7evn8zBZx0r6L_wKCkrI8qfECNBY8q0FxlqKYmxAGE9TleCypjgR_ThOBAxFTm1SSUM9pDc6Mb2djkA.webp)【졸업생】요기리](/w/%EC%9A%94%EA%B8%B0%EB%A6%AC)
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN Civia](//i.namu.wiki/i/3HKJG8L9wxEdK_M2VcLnEAZDKgwQW1mk4KLGJ7zNQFxRvUqrYUPDFjkvIfyWOxVo2IG0XvhJkaFg0MNiFTuE8xvU3afU4AZmL3xK-RQj8QyWfmPcRsmPAKMb9_vLc3lqq7c0Da18QL-DlQXo2OycYQ.webp)【졸업생】Civia](/w/Civia)
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN Spade...](//i.namu.wiki/i/LYWNnr6OpWp-0uxXPh4R3_eCe41BsAxuw66A9LmcigCA-hCenlr_JVM4SRUUw6Eym0bwYA3-Zxbr7fDDs5Atk39SoQoc1nAhumGl6ycIcdN_ovrD2oqAUe4FQCzJqtojEAcH2V1hexxF8ukP6wVihg.webp)【졸업생】스페이드 에코](/w/%EC%8A%A4%ED%8E%98%EC%9D%B4%EB%93%9C%20%EC%97%90%EC%BD%94)
+
+[2기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN Rosal...](//i.namu.wiki/i/lLnJqs0MQUZSshuE2yjfaSAwtZjTy051m6HYFAKhNq3pEaupI17MFOVOKcZpuFmGb3WpTg7JahuVp0whGt3APd6XH1TAtLZ2ruO4BJWvC55ABhM-4Ja3gI7FIe-SCJJy0S-9czTTFYsqPR99_JMwPg.webp)【졸업생】로사린](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D)
+[2기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN Doris](//i.namu.wiki/i/t5CjZnTdoyqKZwLxsjQELVsP2TiE1CIDYf5LTMEbWuNfio05H5vfWQrqDlwiXu2DZEE4ELCA5hnVS4zi_Nld9QbNiBxymoJt20yRMnOvc2pa4wU1wSlezXCChADwfdlUwUkBlqOqbD1LEEPYnsusIQ.webp)【졸업생】도리스](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D)
+[2기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20CHINA%E2%97%86)[![hololiveCN Artia...](//i.namu.wiki/i/t3cu50TdyD25mTGvDWZf-JohY0QN7Oh-DAWSGn4IiLK_bnXLqIfMNcJ3qHK_3NN_8e-3J-4fqsgwKqzNUORCv3JXavs6wVSZNHlLUWfrsWmb_FMgDSoZAIuzuwPiW9OugNGozRRxAUFFZ8fXdHir8w.webp)【졸업생】아티아](/w/hololive%20CHINA#2%EA%B8%B0%EC%83%9D)
 
 HOLOSTARS JP
-| 1기생하나사키 미야비카나데 이즈루아르란디스릿카【졸업생】카가미 키라 |
-| 2기생 - SunTempo아스텔 레다키시도 텐마유코쿠 로베루 |
-| 3기생 - MaFia카게야마 시엔아라가미 오가 |
-| UPROAR!!야토가미 후마우츠기 우유미나세 리오 |
 
-HOLOSTARS EN
-| TEMPUS리지스 알테어악셀 시리오스가비스 베텔마키나 X 플레온반조인 핫카조스이지 신리【졸업생】매그니 데즈몬드【졸업생】누아르 베스퍼 |
-| ARMIS쥐라르드 T 렉스포드골드불릿옥타비오크림즌 루즈 |
+[1기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#HOLOSTARS%20JP)[![홀로스타즈 야쿠시지스자쿠](//i.namu.wiki/i/4EE-YNt7985HYi2GwMVmy3K3to2zyePJcCl72ytHYuwyJKIbmcvbDYqvVv3hrC9kBfnAzNKaOera9CJSQg3AypDO0avUQ57dpt-IZpklunx0-TB066WjvD2MsTTwD2PVfbND01tLnkqEtCKB77iqaQ.webp)【활동 종료】야쿠시지 스자쿠](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#%EC%95%BC%EC%BF%A0%EC%8B%9C%EC%A7%80%20%EC%8A%A4%EC%9E%90%EC%BF%A0)
+[3기생](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#3%EA%B8%B0%EC%83%9D%20-%20MaFia)[![홀로스타즈 츠키시타카오루 r](//i.namu.wiki/i/b0ACvSrqjVgyyy9N5eAKlXAllMBH3sBiW7eARTr52L7zyTe34Oz4_Dk-dsdUPL6Y1ZsgKJ4OzU3N89jie431Mn9pqpzVUAR166LKZnXrNawcNIzz34JlIIKpzndtbXGGJFJj7uNkddMSAS50t7GCYQ.webp)【계약 종료】츠키시타 카오루](/w/%EC%B8%A0%ED%82%A4%EC%8B%9C%ED%83%80%20%EC%B9%B4%EC%98%A4%EB%A3%A8)
+[UPROAR!!](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#UPROAR!!)[![Hizaki-Gamma thu...](//i.namu.wiki/i/oRD3K05ihs4mO6w4qt6BmvIzCIX5scS-dD5X9pHB5QMr-NzM855xFDHf3kLmgzvNQWGvFSv7Anjnz94i_XytnwR8mVuSKHxejPeSo7itOSWNldxnfDJMR9fILqdTSlHMARYDDYsvntab2Zk1BN0C8A.webp)【계약 해지】히자키 감마](/w/%ED%9E%88%EC%9E%90%ED%82%A4%20%EA%B0%90%EB%A7%88)
 
-hololive AN
-| 홀로라이브 아나운서하루사키 노도카 |
 
-Office Staff
-| 사무소 스태프【퇴직】친구A |
 
-이전 소속 멤버
-| hololive JP |
-| 1기생【계약 해지】요조라 멜3기생【계약 해지】우루하 루시아5기생【졸업생】마노 알로에 |
-| hololive CN |
-| 1기생【졸업생】요기리1기생【졸업생】Civia1기생【졸업생】스페이드 에코2기생【졸업생】로사린2기생【졸업생】도리스2기생【졸업생】아티아 |
-| HOLOSTARS JP |
-| 1기생【활동 종료】야쿠시지 스자쿠3기생【계약 종료】츠키시타 카오루UPROAR!!【계약 해지】히자키 감마 |
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| ReGLOSS 디스코그래피 [ 앨범 ]1st Album |  |  |  |
-|  |  |  |  |
-| ReGLOSS2024. 11. 06. |  |  |  |
 
-[ 싱글 및 EP ]
-| 1st Single | 2nd Single | 3rd Single | 4th Single |
-|  |  |  |  |
-| 瞬間ハートビート2023. 9. 4. | シンメトリー2024. 3. 24. | 泡沫メイビー 2024. 8. 10. | フィーリングラデーション2024. 9. 10. |
-| 5th Single | 6th Single |  |  |
-|  |  |  |  |
-| サクラミラージュ2025. 3. 10. | ミッドサマーシトラス2025. 7. 11. |  |  |
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-| 오토노세 카나데音(おと)乃(の)瀬(せ)奏(かなで) ｜ Otonose Kanade |
-|  |
-| [ 이미지 더 보기 ] |
-| 데이브레이크 |
+
+
+
+[![regloss logo whi...](//i.namu.wiki/i/g32pi7GliEVIpJgHy-lvfuJVKSh3g9Kx3joXbBuabEJ7rwYVVH_ehKE79h7CNlEI2r2zbW1FZVtKr4YBZCGJfJLnyZbwsyG2pJNWapE57z-VhpEgRlfzh5jdCEszDLSx7tW2HBYvvXbpIJy6ND0kUg.webp)](/w/ReGLOSS)
+
+ReGLOSS 디스코그래피
+
+[ 앨범 ]1st Album
+
+[![regloss album co...](//i.namu.wiki/i/5wckxl8mZbQRc2rzngnpab715HAuGxl6cTRYblLkWuEwp8NhxfP7JZns6sa0V9-1UXdX47I-HDdQCnVrA4JdrS2MfCVUaD9qJk6oRh6La2vV_POfjNrN-lbjyNOhlM1AHDnu1uyw-k2G6myOBNwhLQ.webp)](/w/ReGLOSS(%EC%95%A8%EB%B2%94))
+
+[ReGLOSS](/w/ReGLOSS(%EC%95%A8%EB%B2%94))
+2024. 11. 06.
+
+[ 싱글 및 EP ]1st Single
+2nd Single
+3rd Single
+4th Single
+[![Shunkan-Heartbea...](//i.namu.wiki/i/99zyYlkuRbp3OdHhFoyiOAJAxe53ueHJujin3rDNea6szukrUOVt3uG60913I1kctXt1tRn7TGlYlrWiWpJAo0Me1bywQH5QxtHdZYNY0bPm2Dt_klp_fZz3DmKdddjN4FD0j5GtxSS6Xp8ikdsKcg.webp)](/w/%E7%9E%AC%E9%96%93%E3%83%8F%E3%83%BC%E3%83%88%E3%83%93%E3%83%BC%E3%83%88)
+
+[![シンメトリー ReGLOSS](//i.namu.wiki/i/nQEPG4duz2iSI18j8zCCagOi_S0fhGjpsDEUUG6SlrUXsxrEcrBtyNgkpuVSKjhs3SY0mXCxSCCOSVAq-Txkq7eg5B0c7KAhT-Lm15JLBJaeiUHZgwVD3jmXksZ3bDVLbnoe85zaROVwgx3JONYpVg.webp)](/w/%E3%82%B7%E3%83%B3%E3%83%A1%E3%83%88%E3%83%AA%E3%83%BC)
+
+[![Bubblemaybe](//i.namu.wiki/i/kE4bGbPBRvurv6avjfKGi6_xvDB2a057kqFhVIjOmuWR5y8QblE6NpfzrPnPJVrok4_mnJCJ8B3VFpQG2crEq7kR4ukbTayIX0LjPJnNusbmwI8Bqnhmtq4fhPi81VsMQXp7yilNiYDTXSD-dmZ3ww.webp)](/w/%E6%B3%A1%E6%B2%AB%E3%83%A1%E3%82%A4%E3%83%93%E3%83%BC)
+
+[![필링그라데이션](//i.namu.wiki/i/mbwFxblkRIFeTu5YVC0eRHHLLS49mgpThm5ANPbehbql0uRHmCxbQ0cZCLQLNOsYYgHNqapWKebSeZnwbTTWUY7njWsmC-FNS0EF528OOFBZteCIHAPJnAbuBDxv_hQpqYcvppsZZukf1PSb1TmBVg.webp)](/w/%E3%83%95%E3%82%A3%E3%83%BC%E3%83%AA%E3%83%B3%E3%82%B0%E3%83%A9%E3%83%87%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3)
+
+[瞬間ハートビート](/w/%E7%9E%AC%E9%96%93%E3%83%8F%E3%83%BC%E3%83%88%E3%83%93%E3%83%BC%E3%83%88)
+2023. 9. 4.
+[シンメトリー](/w/%E3%82%B7%E3%83%B3%E3%83%A1%E3%83%88%E3%83%AA%E3%83%BC)
+2024. 3. 24.
+[泡沫メイビー](/w/%E6%B3%A1%E6%B2%AB%E3%83%A1%E3%82%A4%E3%83%93%E3%83%BC) 
+2024. 8. 10.
+[フィーリングラデーション](/w/%E3%83%95%E3%82%A3%E3%83%BC%E3%83%AA%E3%83%B3%E3%82%B0%E3%83%A9%E3%83%87%E3%83%BC%E3%82%B7%E3%83%A7%E3%83%B3)
+2024. 9. 10.
+5th Single
+6th Single
+
+[![사쿠라미라주](//i.namu.wiki/i/opS9as5b6ngF6YLa_6ZYqnEAULjBmGemHCdlyi8xrUZv_iND-2j9KtGWZY4Ovz4Z0TNRnKPJnhXn8e41NzHu81q0rhV_nG0j4lxaf9XRBhiEyJzRaCZMcIHVADfq2vlzF_MWp1EFjWJG8RA999fmOA.webp)](/w/%E3%82%B5%E3%82%AF%E3%83%A9%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5)
+
+[![ミッドサマーシトラス](//i.namu.wiki/i/EYA1BauWlKP5ytUm9p78cPqdoDs5dSLzDWBCSRI0ZezFS3iiDy0z5-Ar8QNkkplVyVs78PcMDFbsW52E1xBlDopGtHhwQkwpN-YztYGtPkRpJRVUrH4nEqiokSPx19Dav2qLTYj93aAeEbMDp0tn5A.webp)](/w/%E3%83%9F%E3%83%83%E3%83%89%E3%82%B5%E3%83%9E%E3%83%BC%E3%82%B7%E3%83%88%E3%83%A9%E3%82%B9)
+
+[サクラミラージュ](/w/%E3%82%B5%E3%82%AF%E3%83%A9%E3%83%9F%E3%83%A9%E3%83%BC%E3%82%B8%E3%83%A5)
+2025. 3. 10.
+[ミッドサマーシトラス](/w/%E3%83%9F%E3%83%83%E3%83%89%E3%82%B5%E3%83%9E%E3%83%BC%E3%82%B7%E3%83%88%E3%83%A9%E3%82%B9)
+2025. 7. 11.
+
+
+
+
+
+
+
+오토노세 카나데
+音(おと)乃(の)瀬(せ)奏(かなで) ｜ Otonose Kanade
+![카나데 데바이스](//i.namu.wiki/i/Ji_0qVk2W4kAUYRlzubGw6q9XsLqyJ-SrIHxth3o4yXhQ1pb9CbemXldCU4FQM1QIcduv0CMPa1gBXX3B-QVqm0QYbVauIZ7csQwCojUok8p7iEiOL4dbijrIoLgB1w_mQ9UJ4FY50Zceghz4yfnlQ.webp)
+[](/jump/e6Oqhlid6jbDfj9n49qkBQeTFxrl11Wqn44CAdNiITaBIC9EtFnIXojTE%2F9s4%2Fjk8D%2Fvpccxe8q3Ax1lvCMVjw%3D%3D)
+[ 이미지 더 보기 ]![카나데 브레이크](//i.namu.wiki/i/wTq6CBmZYn8FjHSnZ1hniphC59OEQ_gFysAxG4-9kMg6F14DVeFpnc4wUtWMsAE06vKJwqEVSkfAVDcx2cJ8ruLQRqK5AtpYlovHyGYlNITIN_KxQyo1ohbUeGjJKUk5bBlXXF6BFvqYO_KIkPPe1w.webp)
+[](/jump/e6Oqhlid6jbDfj9n49qkBQeTFxrl11Wqn44CAdNiITYyoJQzbng%2FDXRGPqiEJ%2FhFO0dYfoA3RyW6E4asaL3t5A%3D%3D)
+데이브레이크
 
 성별
 여성
@@ -186,58 +321,57 @@ Live 2D
 🎹✨
 싸인[[15]](#fn-15)
 ![오토노세 카나데 싸인](//i.namu.wiki/i/fob9xdatQDHiPiR2JkNmUfm37rfrh0rIcxySHiNERGpOL5vVg0KB3CbmHN82LyIJIV4MNyq4pptTCicyFQoO1g.webp)
-[](/jump/JArseHWXLa26CAWYCugxE4sssEJ1U2UTk0pwKf7uWGlP336GQscAUqbJX5JJRNsQPj1YP8duW0kgy3ZkeUhbHg%3D%3D)
+[](/jump/e6Oqhlid6jbDfj9n49qkBSeXUrBmrQ3tXYbswwGa80YKUKRcRUzUyba38hRSDKoVrY1ttRB62Mlo9TYUcHDLdw%3D%3D)
 외부 링크
 [![유튜브 아이콘](//i.namu.wiki/i/EdY28NAkdZreiAXZbZHXJrcBs5tnwTSbfi4XRQrPPRXKPI_IZxhytzNTv12CkLH7RkZv-j_Kbs-kZerMQXQSOSwpjHucVHU2mIDUz4yNiOaXOgcxvf-XwPtsWzPBnLJiTZqIaSMyXxCFBZFcXvqXmw.svg)](https://www.youtube.com/@OtonoseKanade) | [![X Corp 아이콘(블랙)](//i.namu.wiki/i/4ewGNUKaleg2Li7sFUcvG9M4kLZ9-NzOOEiDZodR76rIwpebnnIYs6-WrUy3TBlbfUJohuxzAjdFin6lfzu6sGQOdWp7Lk49S0zlIV6JG3HoC61-AkDa8E8-x-8Zr1oNrOcGAAjqvgrj3GSg3L3KyA.svg)](https://x.com/otonosekanade) | [![Hololive 아이콘](//i.namu.wiki/i/-wxiknkpnT9IWv0a11cYOv0OSajfmj4CpbGYQnalFx2JpXMu69G6jVDE-x13tHD8-LKFCXVIpl7sBM5DkInuHg.svg)](https://hololive.hololivepro.com/talents/otonose-kanade/)| [![틱톡 아이콘](//i.namu.wiki/i/YgnlsBhi1tV6SQwcLx9LgE_7pk8OnRtx3vGjqzod1UBh6gPyvpQL2hMom0mtqH6H2hRsIh7y2Tubq3cvtITHcMTrRpVu_Fpx9yA_E6ZWYYeyv4pWP3BOkPq3v8uHCOM7fSKjRG_Kf7kJIs3ZS_mWLA.svg)](https://www.tiktok.com/@otonosekanade_regloss)
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
 [1](#s-1). 개요[2](#s-2). 캐릭터 시트[3](#s-3). 스트리밍 규칙[4](#s-4). [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[5](#s-5). [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[6](#s-6). [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[7](#s-7). 관련 밈[8](#s-8). 다른 유튜버와의 관계[8.1](#s-8.1). DEV_IS[8.2](#s-8.2). JP[8.3](#s-8.3). ID[8.4](#s-8.4). EN[8.5](#s-8.5). 홀로라이브 이외
 [9](#s-9). 여담
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [1.](#toc) 개요[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=1)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-|  |
-| 오토노세 카나데의 데뷔 기념 커버곡 《이름 없는 괴물》 |
+
+
+
+
+
+
+
+
+
+
+
+
+오토노세 카나데의 데뷔 기념 커버곡 《[이름 없는 괴물](/w/%EC%9D%B4%EB%A6%84%20%EC%97%86%EB%8A%94%20%EA%B4%B4%EB%AC%BC(EGOIST))》
 
 ここが私のステージだから！
 여기가 나의 스테이지니까!
@@ -252,17 +386,27 @@ Live 2D
 ---
 [홀로라이브 공식 소개](https://hololive.hololivepro.com/talents/otonose-kanade/)[[16]](#fn-16)
 
-| 인사말 |
-| 스트리머 측 | 방송 시작 | ドレミファソラシド〜♪ホロライブDEV_IS所属、ReGLOSSの音楽家の卵！音乃瀬奏です！[17][한국어][19] |
-| 방송 종료 | またね〜〜〜〜〜〜〜〜ガハw |
-| 리스너 측 | 대기 중 | かなでスタンバイ🎹✨ |
-| 방송 시작 | こんのせ |
-| 방송 종료 | おつのせ |
+인사말
+스트리머 측
+방송 시작
+ドレミファソラシド〜♪ホロライブDEV_IS所属、ReGLOSSの音楽家の卵！音乃瀬奏です！[[17]](#fn-17)
+[[한국어]](#fn-%ed%95%9c%ea%b5%ad%ec%96%b4)[[19]](#fn-19)
+방송 종료
+またね〜〜〜〜〜〜〜〜ガハw
+리스너 측
+대기 중
+かなでスタンバイ🎹✨
+방송 시작
+こんのせ
+방송 종료
+おつのせ
 
 [hololive 프로덕션](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98) 소속의 [버츄얼 유튜버](/w/%EB%B2%84%EC%B8%84%EC%96%BC%20%EC%9C%A0%ED%8A%9C%EB%B2%84). 2023년 9월 9일 [hololive DEV_IS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#hololive%20DEV_IS) 소속 그룹인 [ReGLOSS](/w/hololive%20%ED%94%84%EB%A1%9C%EB%8D%95%EC%85%98/%EC%86%8C%EC%86%8D%20%EB%A9%A4%EB%B2%84#ReGLOSS)로 데뷔했다.
 
-[ 구독자 증가 추이 | 펼치기 · 접기 ] 
-|  | 오토노세 카나데구독자 수 변화 추이 일람 |
+[ 구독자 증가 추이 | 펼치기 · 접기 ] ![카나데 데바이스](//i.namu.wiki/i/sO3fg5dcx-arohXScjdA78hZZwbvUvnR673M6wItMi5II-uTS5t2qVFK__3MM89JuDIWH22lWuoR0oUFREGU3pl759PKLxXTmfYnKqA18rkWjDFtxHn2AaM8y86e3G6pdUS5wZMa_RRxPA4oDrnEYA.webp)
+[](/jump/6BYge725eDEeskQ0MSywgtKt58FqvBrBa7PjZStgUAnnEe%2FH8IRgg5lUyE9qzOfn0ZwVjfwJfcAQ9vw7aHM1Kw%3D%3D)
+오토노세 카나데
+구독자 수 변화 추이 일람
 
 기준 날짜
 구독자 수
@@ -300,217 +444,227 @@ Live 2D
 
 +3.8만 | +12.2%
 
-| 날짜 | 구독자 수 |
-| 2023년 9월 10일 | 10만 명 달성 |
-| 2023년 10월 20일 | 20만 명 달성 |
-| 2024년 2월 14일 | 30만 명 달성 |
-| 2024년 6월 7일 | 40만 명 달성 |
-| 2024년 10월 7일 | 50만 명 달성 |
-| 2025년 1월 27일 | 60만 명 달성 |
-| 2025년 6월 7일 | 70만 명 달성 |
+날짜
+구독자 수
+2023년 9월 10일
+10만 명 달성
+2023년 10월 20일
+20만 명 달성
+2024년 2월 14일
+30만 명 달성
+2024년 6월 7일
+40만 명 달성
+2024년 10월 7일
+50만 명 달성
+2025년 1월 27일
+60만 명 달성
+2025년 6월 7일
+70만 명 달성
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [2.](#toc) 캐릭터 시트[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=2)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-|  |
-| 캐릭터 삼면도 |
 
-|  |
-| 홀로나츠 삼면도 |
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+![F6yml57aQAAGTzx](//i.namu.wiki/i/b6Ry5PBYWMCxyUuHMH4OfZnwKRFUMUzEGkMK-zokKiVoPsuFySa4dlZnWABfhxEfBO-v1k0qNxQ_YY-OutrKX6EEZAArx5N-cPVBQvaUBuZpk0u2zw3J3UhToVld0ArBAHXoYZzUcrYeW6UWJzIS3A.webp)
+[](/jump/6BYge725eDEeskQ0MSywgvYQ4tc5HRlKBPCFXPcm1wpyqcM5sytA%2BYKPTvJha7jN)
+
+캐릭터 삼면도
+
+![OtonoseKanade ho...](//i.namu.wiki/i/Z13NKHAVpI1jIy2C5H_5XwpokaCF64MACj8ls7kxooGHU4waFMZZUdGAQwFcUgthd__q1irqIeniJi_fKgj2jMjyr2rP5EWB3wGxc3tKBBXH3u6azUZUornNN4A-nXBnE0537vgml8ZPm1KB143GEg.webp)
+[](/jump/6BYge725eDEeskQ0MSywgoO5Dg5Oz8IvlPQRnJMc43PfqQpzHZTNixeRUFw8onr%2By7s3sxapftOkgBJrsqmW0w%3D%3D)
+
+홀로나츠 삼면도
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [3.](#toc) 스트리밍 규칙[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=3)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [4.](#toc) [성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=4)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 ![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-&nbsp; 자세한 내용은 [오토노세 카나데/성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95) 문서를 참고하십시오.
+ 자세한 내용은 [오토노세 카나데/성격 및 방송 특징](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%84%B1%EA%B2%A9%20%EB%B0%8F%20%EB%B0%A9%EC%86%A1%20%ED%8A%B9%EC%A7%95) 문서를 참고하십시오.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [5.](#toc) [음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=5)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 ![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-&nbsp; 자세한 내용은 [오토노세 카나데/음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85) 문서를 참고하십시오.
+ 자세한 내용은 [오토노세 카나데/음악](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EC%9D%8C%EC%95%85) 문서를 참고하십시오.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [6.](#toc) [방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94)[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=6)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 ![상세 내용 아이콘](//i.namu.wiki/i/cxyuM7Aj5JIvFwmvkAHRWOwkYrY6sLj6hmzZjDl1a-7FBMY5EXHLC2lbhJffqc0JjT6OS3Keqj50GlS7HRmsvxTtlvNUxh24CUSZFTzTbQI3fvQOV8RYfpnawh50BBzZldHujxFkgkrqJpIszL--Zw.svg)
-&nbsp; 자세한 내용은 [오토노세 카나데/방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94) 문서를 참고하십시오.
+ 자세한 내용은 [오토노세 카나데/방송 일화](/w/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0/%EB%B0%A9%EC%86%A1%20%EC%9D%BC%ED%99%94) 문서를 참고하십시오.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [7.](#toc) 관련 밈[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=7)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-|  |
-| 카나데의 캐릭터성이 돋보이는 공식 음MAD 영상 |
+
+
+
+
+
+
+
+
+
+
+
+
+카나데의 캐릭터성이 돋보이는 공식 [음MAD](/w/%EC%9D%8CMAD) 영상
 
 * 병아리: 시초는 9월 11일 잡담 방송 때 [기억력이 안 좋다고 했다가](https://www.youtube.com/live/kA4AHOym1V8?t=2578), 채팅의 "닭"을 언급하면서이다. 바로 다음 날인 9월 12일 노래 방송에서 매니저가 "카나데 씨는 [병아리 같네요](https://youtu.be/R7UsMjQdDlU)"라고 한 일화가 알려졌다. 마침 이미지 색상도 [노란색](/w/%EB%85%B8%EB%9E%80%EC%83%89) · [빨간색](/w/%EB%B9%A8%EA%B0%84%EC%83%89)이고, 공식 프로필과 인사말에도 "음악가의 [달걀](/w/%EB%8B%AC%EA%B1%80)"[[22]](#fn-22)이 있으며, 평소 천진난만한 아이같은 행동과도 일치하여 [닭](/w/%EB%8B%AD) 내지 [병아리](/w/%EB%B3%91%EC%95%84%EB%A6%AC)라는 인상을 굳혔다. 이전에는 닭 이모지(🐔)와 병아리 이모지(🐤)가 공존하였으나, [닭 선배](/w/%ED%83%80%EC%B9%B4%EB%82%98%EC%8B%9C%20%ED%82%A4%EC%95%84%EB%9D%BC)와 겹친다는 이유로 사용을 자제해 달라는 요청이 있었다. 그래서 보통은 병아리 이모지가 보이고, 가끔 심각한 상식 부족이 보일 때 PON 대신에 닭 이모지가 도배됐었으나 지금은 쓰이지 않는다. 다만 이모지가 쓰이지 않을 뿐이지 이젠 병아리 자체가 카나데의 상징이 됬다.
 
@@ -560,71 +714,100 @@ Live 2D
 연주: 이름 [카나데](/w/%EC%B9%B4%EB%82%98%EB%8D%B0)([奏](/w/%E5%A5%8F))가 일본어 "연주하다(奏でる)"에서 유래된 것이라 번역기를 쓰면 [연주](/w/%EC%97%B0%EC%A3%BC)가 나오는데, 마침 한국에서 흔한 여성 이름인지라 별명으로 자연스럽게 자리잡았다. 6기생 [사카마타 클로에](/w/%EC%82%AC%EC%B9%B4%EB%A7%88%ED%83%80%20%ED%81%B4%EB%A1%9C%EC%97%90)가 카나데의 데뷔 방송을 보며 한국어를 가르쳐달라는 [트윗](https://twitter.com/sakamatachloe/status/1700474013791998453)을 하며 장난스럽게 카나데 선배라고 불렀는데, 연주 선배라고 자동 번역된 것이 커뮤니티 각지로 퍼졌고 이게 한국 이름 같아서 입에 착 달라붙다 보니 정착되었다. 성씨인 오토노세에서 '오' 자만 따서 오연주(吳演奏)라고 부르기도 한다.
 * 쌈닭: 위의 병아리와 연계되는 별명으로, 게임에서 경쟁과 싸움을 즐기고 선배([스이세이](/w/%ED%98%B8%EC%8B%9C%EB%A7%88%EC%B9%98%20%EC%8A%A4%EC%9D%B4%EC%84%B8%EC%9D%B4)·[루이](/w/%ED%83%80%EC%B9%B4%EB%84%A4%20%EB%A3%A8%EC%9D%B4)), 동기([아오](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4)) 가릴 것 없이 돌격하는 모습에서 나왔다. 모두가 벌벌 떠는 스이코패스도 두려워하지 않는 미친 전투본능을 가지고 있을 정도. 게임을 많이 접해보지 못하여 처음에는 잘 못하지만, 태생적인 감각 내지는 전투 센스 덕분인지 게임 실력은 물론이고 전투 실력도 꽤 좋다. 호승심이 높기 때문인지 게임을 인내심을 가지고 끈덕지게 잡기도 하며 타 방송인과 콜라보로 게임을 하다가 지면 많이 아쉬워하기도 한다.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [8.](#toc) 다른 유튜버와의 관계[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=8)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### [8.1.](#toc) DEV_IS[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=9)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 호칭 및 태그 일람 |
-| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
-| ReGLOSS |
-| 히오도시 아오 | 아오 씨(あおさん), 히오도시(火威) | 카나데짱(かなでちゃん) | 아오카나(あおかな) |
-| 이치죠 리리카 | 샤쵸(ｼｬｯﾁｮｳ), 이치죠 리리카(一条莉々華) | 카나데(奏), 카나데소 (奏そ) | 리리나데(りりなで) |
-| 주우후테이 라덴 | 오뎅짱(おでんちゃん)、라덴짱(らでんちゃん) | 캬나디(キャナディ), 카나데(奏) | 나데라데(なでらで) |
-| 토도로키 하지메 | 반쵸(ばんちょう) | 카나데(かなで) | 카나하지(かなはじ) |
-| FLOW GLOW |
-| 이사키 리오나 | 리오나(リオナちゃん), 리오나짱(リオナちゃん) | 카나데 선배(奏先輩) |  |
-| 코가네이 니코 | 니코땅(ニコたん) | 카나데 선배(奏先輩) |  |
-| 미즈미야 스우 | 스우짱(すうちゃん) | 카나데 선배(奏先輩) |  |
-| 린도 치하야 | 치하짱(ちはちゃん), 치하(ちは) | 카나데 선배(奏先輩) |  |
-| 키키라라 비비 | 비비짱(ヴィヴィちゃん), 비비땅(ヴィヴィたん) | 카나데 선배(奏先輩) | 나데비비(なでヴィヴィ) |
+
+
+
+
+
+
+
+
+
+
+
+호칭 및 태그 일람
+펼치기/접기상대
+부르는 호칭 
+불리는 호칭 
+태그 
+ReGLOSS 
+[히오도시 아오](/w/%ED%9E%88%EC%98%A4%EB%8F%84%EC%8B%9C%20%EC%95%84%EC%98%A4)
+아오 씨(あおさん), 히오도시(火威)
+카나데짱(かなでちゃん)
+아오카나(あおかな)
+[이치죠 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A3%A0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)
+샤쵸(ｼｬｯﾁｮｳ), 이치죠 리리카(一条莉々華)
+카나데(奏), 카나데소 (奏そ)
+리리나데(りりなで)
+[주우후테이 라덴](/w/%EC%A3%BC%EC%9A%B0%ED%9B%84%ED%85%8C%EC%9D%B4%20%EB%9D%BC%EB%8D%B4)
+오뎅짱(おでんちゃん)、라덴짱(らでんちゃん)
+캬나디(キャナディ), 카나데(奏)
+나데라데(なでらで)
+[토도로키 하지메](/w/%ED%86%A0%EB%8F%84%EB%A1%9C%ED%82%A4%20%ED%95%98%EC%A7%80%EB%A9%94)
+반쵸(ばんちょう)
+카나데(かなで)
+카나하지(かなはじ)
+FLOW GLOW
+[이사키 리오나](/w/%EC%9D%B4%EC%82%AC%ED%82%A4%20%EB%A6%AC%EC%98%A4%EB%82%98)
+리오나(リオナちゃん), 리오나짱(リオナちゃん)
+카나데 선배(奏先輩)
+
+[코가네이 니코](/w/%EC%BD%94%EA%B0%80%EB%84%A4%EC%9D%B4%20%EB%8B%88%EC%BD%94)
+니코땅(ニコたん)
+카나데 선배(奏先輩)
+
+[미즈미야 스우](/w/%EB%AF%B8%EC%A6%88%EB%AF%B8%EC%95%BC%20%EC%8A%A4%EC%9A%B0)
+스우짱(すうちゃん)
+카나데 선배(奏先輩)
+
+[린도 치하야](/w/%EB%A6%B0%EB%8F%84%20%EC%B9%98%ED%95%98%EC%95%BC)
+치하짱(ちはちゃん), 치하(ちは)
+카나데 선배(奏先輩)
+
+[키키라라 비비](/w/%ED%82%A4%ED%82%A4%EB%9D%BC%EB%9D%BC%20%EB%B9%84%EB%B9%84)
+비비짱(ヴィヴィちゃん), 비비땅(ヴィヴィたん)
+카나데 선배(奏先輩)
+나데비비(なでヴィヴィ)
 
 * ReGLOSS
 데뷔 직전에는 [AZKi](/w/AZKi)에 의해 "귀여움 담당일 것 같다"는 이야기가 나왔고, 심지어 동기들 사이에서도 처음 만났을 때는 청초한 천사 같다고 여겨졌지만, 뚜껑을 열어 보니 사실상 ReGLOSS에 관련된 밈을 주도하는 포지션이 되었다. 실제로 카나데의 밈들 중에 '난츄콧타', '우메우메' 같은 것들은 다른 동료들도 종종 따라하곤 한다.
@@ -661,86 +844,214 @@ ReGLOSS에서 카나데와 집이 더러운 것으로 쌍벽을 이루고 있는
 
 * [린도 치하야](/w/%EB%A6%B0%EB%8F%84%20%EC%B9%98%ED%95%98%EC%95%BC): 2024년 연말에 신년 기획 당시 카나데의 몰카 대상이[[75]](#fn-75) 된 것 빼고는 접점이 없었던 상태였으나, [Rust](/w/%EB%9F%AC%EC%8A%A4%ED%8A%B8(%EA%B2%8C%EC%9E%84)) 홀로서버를 계기로 본격적으로 친해졌다. 선배 취급 받고 싶지만 실질적으로는 나이 때문에 막내나 다름 없는 카나데를 치하야가 요시요시 해주는 관계로, 리스너들은 치하야를 사실상 새로운 엄마 후보로 취급하고 있다.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### [8.2.](#toc) JP[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=10)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 호칭 및 태그 일람 |
-| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
-| 0기생 |
-| 토키노 소라 | 소라 선배(そら先輩) | 카나데짱(奏ちゃん), 캬나디(キャナディ) |  |
-| 로보코 씨 | 로보코 선배(ロボ子先輩) | 카나데(奏) |  |
-| AZKi | 아즈키 선배(AZKi先輩) | 카나데짱(奏ちゃん) | 아즈노세 (あずのせ) |
-| 사쿠라 미코 | 미코 선배(みこ先輩), 미코치 선배(みこち先輩), 미콘누 선배(みこんぬ先輩) | 카나데(奏), 카난누 (かなんぬ) |  |
-| 호시마치 스이세이 | 스이짱 선배(すいちゃん先輩) | 카나데(奏), 카나데짱(かなでちゃん) |  |
-| 1기생 |
-| 아키 로젠탈 | 아키 선배(アキ先輩), 아키로제 선배(アキロゼ先輩) | 카나데짱(奏ちゃん), 캬나디(キャナディ) |  |
-| 아카이 하아토 | 아카짱(赤ちゃん) | 오토짱(おとちゃん), 캬나디(キャナディ) |  |
-| 시라카미 후부키 | 후부키 선배(フブキ先輩) | 카나데(奏), 캬나디(キャナディ) |  |
-| 나츠이로 마츠리 | 마츠리 선배(まつり先輩) | 카나데(奏) |  |
-| 2기생 |
-| 미나토 아쿠아 | 아쿠아 선배(あくあ先輩) | 카나데짱(奏ちゃん) | 졸업 |
-| 무라사키 시온 | 시온 선배(シオン先輩) | 카나데짱(奏ちゃん) | 졸업 |
-| 나키리 아야메 | 아야메 선배(あやめ先輩) | 카나데(奏) |  |
-| 유즈키 초코 | 초코 선생님(ちょこ先生) | 카나데님(奏様) |  |
-| 오오조라 스바루 | 스바루 선배(スバル先輩), 스바루마마(スバルママ), 스바우마마(スバウマッマ) | 카나데(奏), 카나짱(かなちゃん) |  |
-| 게이머즈 |
-| 시라카미 후부키 | 후부키 선배(フブキ先輩) | 카나데(奏) |  |
-| 오오카미 미오 | 미오 선배(ミオせんぱい) | 카나데(奏) |  |
-| 네코마타 오카유 | 오카유 선배(おかゆ先輩) | 카나데(奏) |  |
-| 이누가미 코로네 | 코로네 선배(ころねせんぱい) | 카나데(奏) |  |
-| 3기생 |
-| 우사다 페코라 | 페코라 선배(ぺこら先輩)、토끼(ウサギ)[76] | 카나데짱(奏ちゃん), 카나데(奏) |  |
-| 시라누이 후레아 | 후레아 선배(フレアせんぱい) | 카나데(奏) | 후레나데 (フレなで) |
-| 시로가네 노엘 | 노엘 선배(ノエル先輩)[77], 노엘마마(ノエルママ), 노엘마망(ノエルﾏﾏﾝ) | 카나데짱(奏ちゃん) | 노에나데 (ノエなで) |
-| 호쇼 마린 | 마린 선배(マリン先輩),  마린마마(マリンママ), 마린마망(マリンﾏﾏﾝ) | 카나데(奏) |  |
-| 4기생 |
-| 아마네 카나타 | 카나타 선배(かなた先輩) | 카나데(奏) | 카나카나 (かなかな) |
-| 츠노마키 와타메 | 와타메 선배(わため先輩) | 카나데짱(奏ちゃん) |  |
-| 토코야미 토와 | 토와 선배(トワ先輩) | 카나데(奏) |  |
-| 히메모리 루나 | 루나 선배(ルーナ先輩) |  |  |
-| 키류 코코 | 키류 회장 선배(桐生会長先輩), 코코 선배(ココ先輩), 회장 씨(会長さん) |  | 졸업 |
-| 5기생 |
-| 유키하나 라미 | 라미 선배(ラミィ先輩) | 카나데짱(奏ちゃん) |  |
-| 모모스즈 네네 | 네네 선배(ねねせんぱい), 네네치 선배(ねねち先輩) | 카나데짱(奏ちゃん) |  |
-| 시시로 보탄 | 보탄 선배(ぼたん先輩) | 카나데(奏) |  |
-| 오마루 폴카 | 폴카 선배(ポルカ先輩), 포우포우 선배(ぽぅぽぅ先輩), ぽぅぽぅ(포우포우)[78] | 카나데(奏) |  |
-| 비밀결사 holoX |
-| 라플라스 다크니스 | 라프짱 선배(ラプちゃん先輩), 라프짱(ラプちゃん), 라프라프땅(ラプラプたん) | 카나데(奏) | 라프사마나데나데(ラプさまなでなで) &amp; 라프나데(ラプなで) |
-| 타카네 루이 | 루이 선배(ルイ先輩) | 카나데짱(奏ちゃん) | 루이나데(ルイなで) |
-| 하쿠이 코요리 | 코요리 선배(こより先輩) | 카나데짱(奏ちゃん) | 코요나데(こよなで) |
-| 사카마타 클로에 | 클로에 선배(クロヱセンパイ) | 카나데짱(奏ちゃん) | 활동종료 |
-| 카자마 이로하 | 고자루스승(ござる師匠) | 카나데짱(奏ちゃん) | 고자노세(ござのせ) |
+
+
+
+
+
+
+
+
+
+
+
+호칭 및 태그 일람
+펼치기/접기상대
+부르는 호칭 
+불리는 호칭 
+태그 
+0기생 
+[토키노 소라](/w/%ED%86%A0%ED%82%A4%EB%85%B8%20%EC%86%8C%EB%9D%BC)
+소라 선배(そら先輩)
+카나데짱(奏ちゃん), 캬나디(キャナディ)
+
+[로보코 씨](/w/%EB%A1%9C%EB%B3%B4%EC%BD%94%20%EC%94%A8)
+로보코 선배(ロボ子先輩)
+카나데(奏)
+
+[AZKi](/w/AZKi)
+아즈키 선배(AZKi先輩)
+카나데짱(奏ちゃん)
+아즈노세 (あずのせ)
+[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)
+미코 선배(みこ先輩), 미코치 선배(みこち先輩), 미콘누 선배(みこんぬ先輩)
+카나데(奏), 카난누 (かなんぬ)
+
+[호시마치 스이세이](/w/%ED%98%B8%EC%8B%9C%EB%A7%88%EC%B9%98%20%EC%8A%A4%EC%9D%B4%EC%84%B8%EC%9D%B4)
+스이짱 선배(すいちゃん先輩)
+카나데(奏), 카나데짱(かなでちゃん)
+
+1기생 
+[아키 로젠탈](/w/%EC%95%84%ED%82%A4%20%EB%A1%9C%EC%A0%A0%ED%83%88)
+아키 선배(アキ先輩), 아키로제 선배(アキロゼ先輩)
+카나데짱(奏ちゃん), 캬나디(キャナディ)
+
+[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)
+아카짱(赤ちゃん)
+오토짱(おとちゃん), 캬나디(キャナディ)
+
+[시라카미 후부키](/w/%EC%8B%9C%EC%B9%B4%EB%9D%BC%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
+후부키 선배(フブキ先輩)
+카나데(奏), 캬나디(キャナディ)
+
+[나츠이로 마츠리](/w/%EB%82%98%EC%B8%A0%EC%9D%B4%EB%A1%9C%20%EB%A7%88%EC%B8%A0%EB%A6%AC)
+마츠리 선배(まつり先輩)
+카나데(奏)
+
+2기생 
+[미나토 아쿠아](/w/%EB%AF%B8%EB%82%98%ED%86%A0%20%EC%95%84%EC%BF%A0%EC%95%84)
+아쿠아 선배(あくあ先輩)
+카나데짱(奏ちゃん)
+
+```
+`졸
+업`
+```
+
+[무라사키 시온](/w/%EB%AC%B4%EB%9D%BC%EC%82%AC%ED%82%A4%20%EC%8B%9C%EC%98%A8)
+시온 선배(シオン先輩)
+카나데짱(奏ちゃん)
+
+```
+`졸
+업`
+```
+[]()
+[나키리 아야메](/w/%EB%82%98%ED%82%A4%EB%A6%AC%20%EC%95%84%EC%95%BC%EB%A9%94)
+아야메 선배(あやめ先輩)
+카나데(奏)
+
+[유즈키 초코](/w/%EC%9C%A0%EC%A6%88%ED%82%A4%20%EC%B4%88%EC%BD%94)
+초코 선생님(ちょこ先生)
+카나데님(奏様)
+
+[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)
+스바루 선배(スバル先輩), 스바루마마(スバルママ), 스바우마마(スバウマッマ)
+카나데(奏), 카나짱(かなちゃん)
+
+게이머즈 
+[시라카미 후부키](/w/%EC%8B%9C%EC%B9%B4%EB%9D%BC%EB%AF%B8%20%ED%9B%84%EB%B6%80%ED%82%A4)
+후부키 선배(フブキ先輩)
+카나데(奏)
+
+[오오카미 미오](/w/%EC%98%A4%EC%98%A4%EC%B9%B4%EB%AF%B8%20%EB%AF%B8%EC%98%A4)
+미오 선배(ミオせんぱい)
+카나데(奏)
+
+[네코마타 오카유](/w/%EB%84%A4%EC%BD%94%EB%A7%88%ED%83%80%20%EC%98%A4%EC%B9%B4%EC%9C%A0)
+오카유 선배(おかゆ先輩)
+카나데(奏)
+
+[이누가미 코로네](/w/%EC%9D%B4%EB%88%84%EA%B0%80%EB%AF%B8%20%EC%BD%94%EB%A1%9C%EB%84%A4)
+코로네 선배(ころねせんぱい)
+카나데(奏)
+
+3기생 
+[우사다 페코라](/w/%EC%9A%B0%EC%82%AC%EB%8B%A4%20%ED%8E%98%EC%BD%94%EB%9D%BC)
+페코라 선배(ぺこら先輩)、토끼(ウサギ)[[76]](#fn-76)
+카나데짱(奏ちゃん), 카나데(奏)
+
+[시라누이 후레아](/w/%EC%8B%9C%EB%9D%BC%EB%88%84%EC%9D%B4%20%ED%9B%84%EB%A0%88%EC%95%84)
+후레아 선배(フレアせんぱい)
+카나데(奏)
+후레나데 (フレなで)
+[시로가네 노엘](/w/%EC%8B%9C%EB%A1%9C%EA%B0%80%EB%84%A4%20%EB%85%B8%EC%97%98)
+노엘 선배(ノエル先輩)[[77]](#fn-77), 노엘마마(ノエルママ), 노엘마망(ノエルﾏﾏﾝ)
+카나데짱(奏ちゃん)
+노에나데 (ノエなで)
+[호쇼 마린](/w/%ED%98%B8%EC%87%BC%20%EB%A7%88%EB%A6%B0)
+마린 선배(マリン先輩),  마린마마(マリンママ), 마린마망(マリンﾏﾏﾝ)
+카나데(奏)
+
+4기생 
+[아마네 카나타](/w/%EC%95%84%EB%A7%88%EB%84%A4%20%EC%B9%B4%EB%82%98%ED%83%80)
+카나타 선배(かなた先輩)
+카나데(奏)
+카나카나 (かなかな)
+[츠노마키 와타메](/w/%EC%B8%A0%EB%85%B8%EB%A7%88%ED%82%A4%20%EC%99%80%ED%83%80%EB%A9%94)
+와타메 선배(わため先輩)
+카나데짱(奏ちゃん)
+
+[토코야미 토와](/w/%ED%86%A0%EC%BD%94%EC%95%BC%EB%AF%B8%20%ED%86%A0%EC%99%80)
+토와 선배(トワ先輩)
+카나데(奏)
+
+[히메모리 루나](/w/%ED%9E%88%EB%A9%94%EB%AA%A8%EB%A6%AC%20%EB%A3%A8%EB%82%98)
+루나 선배(ルーナ先輩)
+
+[키류 코코](/w/%ED%82%A4%EB%A5%98%20%EC%BD%94%EC%BD%94)
+키류 회장 선배(桐生会長先輩), 코코 선배(ココ先輩), 회장 씨(会長さん)
+
+```
+`졸
+업`
+```
+
+5기생 
+[유키하나 라미](/w/%EC%9C%A0%ED%82%A4%ED%95%98%EB%82%98%20%EB%9D%BC%EB%AF%B8)
+라미 선배(ラミィ先輩)
+카나데짱(奏ちゃん)
+
+[모모스즈 네네](/w/%EB%AA%A8%EB%AA%A8%EC%8A%A4%EC%A6%88%20%EB%84%A4%EB%84%A4)
+네네 선배(ねねせんぱい), 네네치 선배(ねねち先輩)
+카나데짱(奏ちゃん)
+
+[시시로 보탄](/w/%EC%8B%9C%EC%8B%9C%EB%A1%9C%20%EB%B3%B4%ED%83%84)
+보탄 선배(ぼたん先輩)
+카나데(奏)
+
+[오마루 폴카](/w/%EC%98%A4%EB%A7%88%EB%A3%A8%20%ED%8F%B4%EC%B9%B4)
+폴카 선배(ポルカ先輩), 포우포우 선배(ぽぅぽぅ先輩), ぽぅぽぅ(포우포우)[[78]](#fn-78)
+카나데(奏)
+
+비밀결사 holoX 
+[라플라스 다크니스](/w/%EB%9D%BC%ED%94%8C%EB%9D%BC%EC%8A%A4%20%EB%8B%A4%ED%81%AC%EB%8B%88%EC%8A%A4)
+라프짱 선배(ラプちゃん先輩), 라프짱(ラプちゃん), 라프라프땅(ラプラプたん)
+카나데(奏)
+라프사마나데나데(ラプさまなでなで) &amp; 라프나데(ラプなで)
+[타카네 루이](/w/%ED%83%80%EC%B9%B4%EB%84%A4%20%EB%A3%A8%EC%9D%B4)
+루이 선배(ルイ先輩)
+카나데짱(奏ちゃん)
+루이나데(ルイなで)
+[하쿠이 코요리](/w/%ED%95%98%EC%BF%A0%EC%9D%B4%20%EC%BD%94%EC%9A%94%EB%A6%AC)
+코요리 선배(こより先輩)
+카나데짱(奏ちゃん)
+코요나데(こよなで)
+[사카마타 클로에](/w/%EC%82%AC%EC%B9%B4%EB%A7%88%ED%83%80%20%ED%81%B4%EB%A1%9C%EC%97%90)
+클로에 선배(クロヱセンパイ)
+카나데짱(奏ちゃん)
+
+```
+`활동
+종료`
+```
+
+[카자마 이로하](/w/%EC%B9%B4%EC%9E%90%EB%A7%88%20%EC%9D%B4%EB%A1%9C%ED%95%98)
+고자루스승(ござる師匠)
+카나데짱(奏ちゃん)
+고자노세(ござのせ)
 
 카나데는 데뷔 초기에 홀로라이브 선배들에 대해서 "[여자들이 그렇게나 많이 모여 있는데](/w/%EC%97%AC%EC%B4%88) 어딘가 [날카로운 부분](/w/%ED%9E%88%EC%8A%A4%ED%85%8C%EB%A6%AC)이 분명 있지 않을까" 하며 자신이 잘못해서 미움받을까 봐 걱정했다고 한다.[[79]](#fn-79) 그런데 막상 홀로라이브에 들어와서 X(트위터)와 디스코드 등으로 선배들과 대화를 주고받고 난 후에는 "다들 내 생각보다 하나같이 너무나도 어른스럽다. 나를 상냥하고 다정하게 대해 주신다"고 감격해했다. 주로 노래 및 음악에 크게 관여하는 버튜버들에게 존경하는 편이다.[[80]](#fn-80)
 
@@ -822,54 +1133,79 @@ ReGLOSS를 제외하고 오프 콜라보를 2번 진행한 2번째 멤버이기�
 이로하가 컨셉상 사무라이라는 점과 평소 행실이 원리원칙적이고 모범적에 가깝다는 부분 때문에, 카나데가 아오와 함께 [사부](/w/%EC%82%AC%EB%B6%80)님으로 모신다. 다만 깍듯하게 '사부님'으로 모시려는 아오와 달리, 카나데 쪽의 느낌은 좀 더 친근한 '싸부~'에 가깝다.
 여담으로, 이로하의 멤버십 이모티콘으로 카나데 / 캬나데 글자를 완성할 수 있다 보니 카나데와 이로하가 엮일 때마다 이로하의 채팅창에는 멤버십 이모티콘으로 카나데 / 캬나데가 올라오는 광경을 볼 수 있다.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### [8.3.](#toc) ID[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=11)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 호칭 및 태그 일람 |
-| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
-| 1기생 |
-| 아윤다 리스 | 리스 선배(リス先輩) | 카나데(奏) |  |
-| 무나 호시노바 | 무나 선배(ムーナ先輩) |  |  |
-| 아이라니 이오피프틴 |  |  |  |
-| 2기생 |
-| 쿠레이지 올리 | 올리 선배(オリー先輩) | 카나데짱(奏ちゃん) |  |
-| 아냐 멜핏사 | 아냐 선배(アーニャ先輩) | 카나데짱(奏ちゃん) |  |
-| 파볼리아 레이네 |  | 카나데(奏) |  |
-| 3기생 |
-| 베스티아 제타 | 제타 선배(ゼータ先輩), 제타짱(ゼータちゃん) | 카나데(奏) |  |
-| 카엘라 코발스키아 | 카엘라 선배(カエラ先輩), 카엘라신(カエラ神) | 카나데(奏) |  |
-| 코보 카나에루 | 코보 선배(こぼ先輩), 보코보코짱(ぼこぼこちゃん) | 카나데짱(奏ちゃん), 카나두이(Kanaduy) |  |
+
+
+
+
+
+
+
+
+
+
+
+호칭 및 태그 일람
+펼치기/접기상대
+부르는 호칭 
+불리는 호칭 
+태그 
+1기생 
+[아윤다 리스](/w/%EC%95%84%EC%9C%A4%EB%8B%A4%20%EB%A6%AC%EC%8A%A4)
+리스 선배(リス先輩)
+카나데(奏)
+
+[무나 호시노바](/w/%EB%AC%B4%EB%82%98%20%ED%98%B8%EC%8B%9C%EB%85%B8%EB%B0%94)
+무나 선배(ムーナ先輩)
+
+[아이라니 이오피프틴](/w/%EC%95%84%EC%9D%B4%EB%9D%BC%EB%8B%88%20%EC%9D%B4%EC%98%A4%ED%94%BC%ED%94%84%ED%8B%B4)
+
+2기생 
+[쿠레이지 올리](/w/%EC%BF%A0%EB%A0%88%EC%9D%B4%EC%A7%80%20%EC%98%AC%EB%A6%AC)
+올리 선배(オリー先輩)
+카나데짱(奏ちゃん)
+
+[아냐 멜핏사](/w/%EC%95%84%EB%83%90%20%EB%A9%9C%ED%95%8F%EC%82%AC)
+아냐 선배(アーニャ先輩)
+카나데짱(奏ちゃん)
+
+[파볼리아 레이네](/w/%ED%8C%8C%EB%B3%BC%EB%A6%AC%EC%95%84%20%EB%A0%88%EC%9D%B4%EB%84%A4)
+
+카나데(奏)
+
+3기생 
+[베스티아 제타](/w/%EB%B2%A0%EC%8A%A4%ED%8B%B0%EC%95%84%20%EC%A0%9C%ED%83%80)
+제타 선배(ゼータ先輩), 제타짱(ゼータちゃん)
+카나데(奏)
+
+[카엘라 코발스키아](/w/%EC%B9%B4%EC%97%98%EB%9D%BC%20%EC%BD%94%EB%B0%9C%EC%8A%A4%ED%82%A4%EC%95%84)
+카엘라 선배(カエラ先輩), 카엘라신(カエラ神)
+카나데(奏)
+
+[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)
+코보 선배(こぼ先輩), 보코보코짱(ぼこぼこちゃん)
+카나데짱(奏ちゃん), 카나두이(Kanaduy)
 
 * 1기생
 [무나 호시노바](/w/%EB%AC%B4%EB%82%98%20%ED%98%B8%EC%8B%9C%EB%85%B8%EB%B0%94): 방송 상으로도 오프라인 상으로도 딱히 접점이 없는 멤버였으나, 2025년 2월 15일 무나의 생일맞이 3D 라이브에 게스트로 참여해 무나, 와타메와 같이 [Maze Town](/w/Maze%20Town)을 불렀던 것이 확인되었다. 게스트는 보통 친한 사람들을 초청한다는 걸 감안하면 둘이 따로 썰을 풀지 않았을 뿐 접점이 존재했던 것은 확실하다.[[149]](#fn-149)
@@ -880,158 +1216,263 @@ ReGLOSS를 제외하고 오프 콜라보를 2번 진행한 2번째 멤버이기�
 * [카엘라 코발스키아](/w/%EC%B9%B4%EC%97%98%EB%9D%BC%20%EC%BD%94%EB%B0%9C%EC%8A%A4%ED%82%A4%EC%95%84): 카나데가 하드코어 서버를 계기로 마인크래프트에 빠지면서 친해진 관계. 카엘라의 말버릇 중 하나인 "HAIYAA~"가 카나데에게 전염되며 이전의 난츄콧타만큼이나 방송 중에 자주 외치곤 한다.
 * [코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8): 2024년 신년 도츠마치 방송 때 찾아온 뒤로 엮이게 된 관계. 세뱃돈을 받기는 커녕 오히려 선배세를 뜯길 뻔 했으나 오프 콜라보를 하면서 보여준 [프라이 팬도 없고 냉장고는 전기도 연결되어있지 않은 집안 꼴](/w/%EC%95%BC%EC%83%9D)로 어떻게든 무마했다. 1박을 포함한 방문이어서 침대도 빌려주었으며, 저녁에 피자도 배달시켜먹고 다음 날 업무를 위해 일찍 일어난 코보와 아침도 먹으러 가는 등 친목을 돈독히 했다. 카나데가 자취하는 모습이 얼마나 믿음직스럽지 못했던지, 쿠소가키 이미지가 압도적인 코보가 듬직한 선배가 되어 종알종알 잔소리를 하는 충격적인 모습을 보였다.[[150]](#fn-150) 이후로는 코보가 카나데를 잘 챙겨주고 있다.[[151]](#fn-151) 방송 외에도 디스코드로 개인적인 연락까지 할 정도로 ID 멤버 중에서도 가장 관계가 깊다.[[152]](#fn-152) 카나데가 기수 상관없이 서로 별명을 부르며 친구처럼 지내는 몇 안되는 홀로멤이기도 하다.[[153]](#fn-153)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### [8.4.](#toc) EN[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=12)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 호칭 및 태그 일람 |
-| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
-| Myth |
-| 모리 칼리오페 | 칼리오페 선배(カリオペ先輩) | 카나데(奏) |  |
-| 타카나시 키아라 | 키아라 선배(キアラ先輩) | 카나데짱(奏ちゃん) |  |
-| 니노마에 이나니스 | 이나 선배(イナ先輩) | 나데 나데 카나데(なでなでかなで) |  |
-| 가우르 구라 | 구라 선배(ぐら先輩) |  | 졸업 |
-| 왓슨 아멜리아 | 아멜리아 선배(アメリア先輩) |  | 활동종료 |
-| Council |
-| 츠쿠모 사나 | 사나 선배(佐命先輩) |  | 졸업 |
-| Promise |
-| IRyS | 아이리스 선배(アイリス先輩) | 카나데(Kanade) |  |
-| 오로 크로니 | 크로니 선배(クロニー先輩) |  |  |
-| 나나시 무메이 |  | 카나데(Kanade) | 졸업 |
-| 하코스 벨즈 | 베이 선배(べー先輩) | 카나데(Kanade) |  |
-| 세레스 파우나 | 파우나 선배(ファウナ先輩) |  | 졸업 |
-| Advent |
-| 시오리 노벨라 |  |  |  |
-| 코세키 비쥬 | 비쥬 선배(ビジュー先輩), 비부(Biboo) | 카나데짱(奏ちゃん) |  |
-| 네리사 레이븐크로프트 | 네리사짱(ネリッサちゃん) | 카나데(Kanade) |  |
-| 후와모코 | 후와모코짱(フワモコちゃん), 후와모코 선배(フワモコ先輩) | 카나데씨(奏さん) |  |
-| Justice |
-| 엘리자베스 로즈 블러드플레임 | 엘리자베스짱(エリザベスちゃん) | 카나데 선배(奏先輩) |  |
-| 지지 무린 | 지지짱(ジジちゃん), 지지 선배(ジジ先輩)[154] | 카나데 선배(奏先輩) |  |
-| 세실리아 이머그린 | 세실리아짱(セシリアちゃん) | 카나데 선배(奏先輩) |  |
-| 라오라 판테라 | 라오라짱(ラオーラちゃん) | 카나데 선배(奏先輩) |  |
+
+
+
+
+
+
+
+
+
+
+
+호칭 및 태그 일람
+펼치기/접기상대
+부르는 호칭 
+불리는 호칭 
+태그 
+Myth 
+[모리 칼리오페](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98)
+칼리오페 선배(カリオペ先輩)
+카나데(奏)
+
+[타카나시 키아라](/w/%ED%83%80%EC%B9%B4%EB%82%98%EC%8B%9C%20%ED%82%A4%EC%95%84%EB%9D%BC)
+키아라 선배(キアラ先輩)
+카나데짱(奏ちゃん)
+
+[니노마에 이나니스](/w/%EB%8B%88%EB%85%B8%EB%A7%88%EC%97%90%20%EC%9D%B4%EB%82%98%EB%8B%88%EC%8A%A4)
+이나 선배(イナ先輩)
+나데 나데 카나데(なでなでかなで)
+
+[가우르 구라](/w/%EA%B0%80%EC%9A%B0%EB%A5%B4%20%EA%B5%AC%EB%9D%BC)
+구라 선배(ぐら先輩)
+
+```
+`졸
+업`
+```
+
+[왓슨 아멜리아](/w/%EC%99%93%EC%8A%A8%20%EC%95%84%EB%A9%9C%EB%A6%AC%EC%95%84)
+아멜리아 선배(アメリア先輩)
+
+```
+`활동
+종료`
+```
+
+Council 
+[츠쿠모 사나](/w/%EC%B8%A0%EC%BF%A0%EB%AA%A8%20%EC%82%AC%EB%82%98)
+사나 선배(佐命先輩)
+
+```
+`졸
+업`
+```
+
+Promise 
+[IRyS](/w/IRyS)
+아이리스 선배(アイリス先輩)
+카나데(Kanade)
+
+[오로 크로니](/w/%EC%98%A4%EB%A1%9C%20%ED%81%AC%EB%A1%9C%EB%8B%88)
+크로니 선배(クロニー先輩)
+
+[나나시 무메이](/w/%EB%82%98%EB%82%98%EC%8B%9C%20%EB%AC%B4%EB%A9%94%EC%9D%B4)
+
+카나데(Kanade)
+
+```
+`졸
+업`
+```
+
+[하코스 벨즈](/w/%ED%95%98%EC%BD%94%EC%8A%A4%20%EB%B2%A8%EC%A6%88)
+베이 선배(べー先輩)
+카나데(Kanade)
+
+[세레스 파우나](/w/%EC%84%B8%EB%A0%88%EC%8A%A4%20%ED%8C%8C%EC%9A%B0%EB%82%98)
+파우나 선배(ファウナ先輩)
+
+```
+`졸
+업`
+```
+
+Advent 
+[시오리 노벨라](/w/%EC%8B%9C%EC%98%A4%EB%A6%AC%20%EB%85%B8%EB%B2%A8%EB%9D%BC)
+
+[코세키 비쥬](/w/%EC%BD%94%EC%84%B8%ED%82%A4%20%EB%B9%84%EC%A5%AC)
+비쥬 선배(ビジュー先輩), 비부(Biboo)
+카나데짱(奏ちゃん)
+
+[네리사 레이븐크로프트](/w/%EB%84%A4%EB%A6%AC%EC%82%AC%20%EB%A0%88%EC%9D%B4%EB%B8%90%ED%81%AC%EB%A1%9C%ED%94%84%ED%8A%B8)
+네리사짱(ネリッサちゃん)
+카나데(Kanade)
+
+[후와모코](/w/%ED%9B%84%EC%99%80%EB%AA%A8%EC%BD%94)
+후와모코짱(フワモコちゃん), 후와모코 선배(フワモコ先輩)
+카나데씨(奏さん)
+
+Justice 
+[엘리자베스 로즈 블러드플레임](/w/%EC%97%98%EB%A6%AC%EC%9E%90%EB%B2%A0%EC%8A%A4%20%EB%A1%9C%EC%A6%88%20%EB%B8%94%EB%9F%AC%EB%93%9C%ED%94%8C%EB%A0%88%EC%9E%84)
+엘리자베스짱(エリザベスちゃん)
+카나데 선배(奏先輩)
+
+[지지 무린](/w/%EC%A7%80%EC%A7%80%20%EB%AC%B4%EB%A6%B0)
+지지짱(ジジちゃん), 지지 선배(ジジ先輩)[[154]](#fn-154)
+카나데 선배(奏先輩)
+
+[세실리아 이머그린](/w/%EC%84%B8%EC%8B%A4%EB%A6%AC%EC%95%84%20%EC%9D%B4%EB%A8%B8%EA%B7%B8%EB%A6%B0)
+세실리아짱(セシリアちゃん)
+카나데 선배(奏先輩)
+
+[라오라 판테라](/w/%EB%9D%BC%EC%98%A4%EB%9D%BC%20%ED%8C%90%ED%85%8C%EB%9D%BC)
+라오라짱(ラオーラちゃん)
+카나데 선배(奏先輩)
 
 * Myth
 [모리 칼리오페](/w/%EB%AA%A8%EB%A6%AC%20%EC%B9%BC%EB%A6%AC%EC%98%A4%ED%8E%98): 음악 관련으로 카나데가 진심으로 존경하는 멤버 중 한 명. 음악 대담에 초대해서 음악과 관련된 대화를 나눈 걸 계기로 많이 친해졌다. 칼리의 [51 Worldwide Games](/w/51%20Worldwide%20Games) 도츠마치에 첫 번째로 참여하기도 하고, 오프라인에서 같이 밥을 먹기도 했으며[[155]](#fn-155) 칼리의 첫 번째 오리곡인 [失礼しますが、RIP♡](/w/%E5%A4%B1%E7%A4%BC%E3%81%97%E3%81%BE%E3%81%99%E3%81%8C%E3%80%81RIP%E2%99%A1)가 4000만 재생수를 돌파하자 진심으로 축하해주었다.
 2024년 12월 26일, 칼리와 듀엣으로 [Beyond the way](/w/Beyond%20the%20way)를 커버하게 되었다. ReGLOSS 이외 타 멤버와의 첫 듀엣이다.
 * [니노마에 이나니스](/w/%EB%8B%88%EB%85%B8%EB%A7%88%EC%97%90%20%EC%9D%B4%EB%82%98%EB%8B%88%EC%8A%A4): 별로 엮인 적은 없지만 마주칠 때마다 이나는 '나데 나데 카나데'라 하고, 카나데는 '타코 타코 [타코야끼](/w/%ED%83%80%EC%BD%94%EC%95%BC%EB%81%BC)'라고 칭하며 티키타카를 하는 편이다.[[156]](#fn-156) 타 홀로멤들에 비하면 교류 기간이 적은 편이지만, 서로 데면데면한 면은 크게 보이지 않고 오히려 말장난을 즐기며 친근한 모습을 보여주는데, 뒤에서 홀로멤들과 놀아도 썰을 잘 풀지 않는 카나데의 특성이나 후배들에게 다가가기 어려워하는 이나의 성향을 생각하면[[157]](#fn-157) 이나와 확실한 접점이 존재했던 것으로 추정된다.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### [8.5.](#toc) 홀로라이브 이외[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=13)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 호칭 및 태그 일람 |
-| 펼치기/접기상대 | 부르는 호칭 | 불리는 호칭 | 태그 |
-| 양나리 | 나리짱(ナリちゃん) | 카나데짱(奏ちゃん) | 나데나리(なでナリ) |
-| 시구레 우이 | 우이 할머니(ういばあちゃん) | 카나데짱(奏ちゃん) | 월요일 쓰레기의 날(月曜ゴミの日) |
+
+
+
+
+
+
+
+
+
+
+
+호칭 및 태그 일람
+펼치기/접기상대
+부르는 호칭 
+불리는 호칭 
+태그 
+[양나리](/w/%EC%96%91%EB%82%98%EB%A6%AC)
+나리짱(ナリちゃん)
+카나데짱(奏ちゃん)
+나데나리(なでナリ)
+[시구레 우이](/w/%EC%8B%9C%EA%B5%AC%EB%A0%88%20%EC%9A%B0%EC%9D%B4)
+우이 할머니(ういばあちゃん)
+카나데짱(奏ちゃん)
+월요일 쓰레기의 날(月曜ゴミの日)
 
 * [양나리](/w/%EC%96%91%EB%82%98%EB%A6%AC): 통칭 나데나리. 카나데의 첫 외부 콜라보로, [Lethal Company](/w/Lethal%20Company) 4인 콜라보에서 만났다. 당시 멤버는 ReGLOSS 2명, [니지산지](/w/%EB%8B%88%EC%A7%80%EC%82%B0%EC%A7%80) 2명이었다(아오, 양나리, [멜로코 쿄란](/w/%EB%A9%9C%EB%A1%9C%EC%BD%94%20%EC%BF%84%EB%9E%80)) 이후 [51 Worldwide Games](/w/51%20Worldwide%20Games) 1대1 콜라보도 진행하였다. 2024년 4월 20일 생일 기념 방송의 도츠마치에서도 가장 먼저 나타나 격의없는 대화를 주고받으며 두터운 친분을 드러냈다.
 * [시구레 우이](/w/%EC%8B%9C%EA%B5%AC%EB%A0%88%20%EC%9A%B0%EC%9D%B4): 통칭 월요일 쓰레기의 날.[[158]](#fn-158) 스바루가 2024년 9월부터 카나데의 엄마로 받아들여지자 일각에서 엄마의 엄마는 할머니라는 논리로, 스바루의 마마가 우이[[159]](#fn-159)니까, 카나데에겐 할머니가 된다는 장난스러운 팬들의 의견이 있어왔다. 2025년 1월 26일에 카나데가 [유튜브 쇼츠](https://youtube.com/shorts/iYkRoKXAgz0?si=ZIBVbZoene7L2WUn)로 우이의 [うい麦畑でつかまえて](/w/%E3%81%86%E3%81%84%E9%BA%A6%E7%95%91%E3%81%A7%E3%81%A4%E3%81%8B%E3%81%BE%E3%81%88%E3%81%A6) 댄스 커버 영상을 올렸는데 그걸 본 우이가 ["음~ 귀여움죄로 포획 불가피"](https://x.com/ui_shig/status/1883806473635197203?t=-hLPIlL-c45sRX2QlQiAcg&amp;s=19)라는 트윗을 올렸고 그 트윗에는 카나데를 손녀, 우이를 할머니라 하는 드립들이 폭발했다. 이것이 계기가 되어 우이가 카나데와 친해지고 싶다는 의사를 드러냈고, 2월 7일 방송에서 밝히길 디스코드 연락처를 교환했다고 한다([방송시간 1:38:57](https://www.youtube.com/live/eGznEsrbwbE?t=5936&amp;si=BK4v8Oq2VLgAxVxo)).
 2025년 5월 18일 우이의 6주년 기념 역도츠마치에 참여, 우이 할머니(ういばあちゃん)라는 표현에 우이가 크게 불편해하지 않고 오히려 적극적으로 써도 좋다고 말하며[[160]](#fn-160) 허락을 받아냈다. 우이의 방송에 월요일 폭탄을 던져놓아 채팅방을 빨갛게 물들이고 간 것은 덤. 이 역도츠마치 건으로 우이에게 손녀로 인정받는 데 성공했으며[#](https://x.com/ui_shig/status/1924123310637654191?t=dwXCNaiq9e_m2FmlPi9RMg&amp;s=19), 이후에는 근시일 내에 오프라인에서 만나자는 약속을 잡거나 [세계 게임전집 51](/w/%EC%84%B8%EA%B3%84%20%EA%B2%8C%EC%9E%84%EC%A0%84%EC%A7%91%2051) 콜라보를 하기도 하고, 작업 중 서로 디스코드로 통화를 하며 서로의 그림 실력이나 노래 실력을 칭찬하기도 하는 등 급격히 가까워지는 모습을 보이고 있다.
 관계도 상 우이 &gt; 스바루 &gt; 카나데 순으로 가계도가 이어지지만 정작 캐릭터 설정상의 나이로 따지면 우이(9세 or 16세) &lt; 스바루(17.4세) &lt; 카나데(20세)로 카나데가 제일 연장자인 것이 아이러니.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## [9.](#toc) 여담[[편집]](/edit/%EC%98%A4%ED%86%A0%EB%85%B8%EC%84%B8%20%EC%B9%B4%EB%82%98%EB%8D%B0?section=14)
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
-&nbsp;
 
-| 홀로그라 출연회차 |
-| 펼치기/접기 순번 | 제목 | 업로드 날짜 | 영상 |
-| 1st | 오마에라! 카나데 홀로그라 보러 와!!![161] | 2024. 10. 6. |  |
-| 2nd | 일단 범인은 절름발이 | 2024. 12. 22. |  |
-| 3rd | 우릴 기억해줘어어어어 | 2024. 12. 29. |  |
-| 4th | 절대 보면 안 되는 비디오[162] | 2025. 1. 5. |  |
-| 5th | 이것도 통과해 보시지! | 2025. 3. 2. |  |
-| 6th | 심부름은 어려워 | 2025. 6. 22. |  |
+
+
+
+
+
+
+
+
+
+
+
+홀로그라 출연회차
+펼치기/접기 순번
+제목
+업로드 날짜
+영상
+1st
+오마에라! 카나데 홀로그라 보러 와!!!
+[[161]](#fn-161)
+2024. 10. 6.
+
+2nd
+일단 범인은 절름발이
+2024. 12. 22.
+
+3rd
+우릴 기억해줘어어어어
+2024. 12. 29.
+
+4th
+절대 보면 안 되는 비디오
+[[162]](#fn-162)
+2025. 1. 5.
+
+5th
+이것도 통과해 보시지!
+2025. 3. 2.
+
+6th
+심부름은 어려워
+2025. 6. 22.
 
 * 캐릭터 디자인을 보면 음악에 관련된 디테일이 굉장히 많다. 가장 우선 눈에 띄는 것은 머리에 ♬♪ 모양의 브로치를 달고 있다는 것. 그 외에도 목 앞의 리본은 [가온음자리표](/w/%EC%9D%8C%EC%9E%90%EB%A6%AC%ED%91%9C#s-2.3) 모양으로 묶여 있으며, 겉옷 소매에는 [도돌이표](/w/%EB%8F%84%EB%8F%8C%EC%9D%B4%ED%91%9C) 기호로 장식되어 있고, 겉옷 아랫단에는 검은건반과 흰건반이 화려하게 수놓여 있다. 이뿐만 아니라 신고 있는 [오버 니 삭스](/w/%EC%98%A4%EB%B2%84%20%EB%8B%88%20%EC%82%AD%EC%8A%A4)의 왼쪽 밴드에는 [오선보](/w/%EC%98%A4%EC%84%A0%EB%B3%B4)와 그 안에 도돌이표가 그려져 있으며, 오른쪽 가터에는 낮은음자리표가 장식되어 있다.
 * [봇치 더 록!](/w/%EB%B4%87%EC%B9%98%20%EB%8D%94%20%EB%A1%9D!)의 등장인물인 [이지치 니지카](/w/%EC%9D%B4%EC%A7%80%EC%B9%98%20%EB%8B%88%EC%A7%80%EC%B9%B4)와 유사점이 많다. 외형적으로는 둘 다 노란머리에 바보털이 있으며, [사이드 테일](/w/%EC%82%AC%EC%9D%B4%EB%93%9C%20%ED%85%8C%EC%9D%BC)[[163]](#fn-163)로 머리를 묶고 장신구로는 붉은 리본을 사용하고 있다. 또한 둘 다 음악에 대한 애정이 깊으며, 음악적인 성공을 추구하는 편이다. 방송 초반에는 니지카 이즈 리얼 이라는 밈이 잠시 돌았으나, 성격이 착실하고 맴버들을 챙겨주는 포지션인 니지카와는 달리 카나데는 완전 덜렁이에 막내 포지션이라는 완전 상극의 포지션 때문에 지금은 사그라든 편.[[164]](#fn-164)
@@ -1080,20 +1521,20 @@ Live2D 모델의 표정 변경 시 [바보털도 움직인다](https://www.youtu
 [스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)에 의하면 의외로 카나데 본인이 궁지에 몰리거나 초조해지면 [뇨뇨뇨뇨 거리면서 양쪽 검지를 빙글빙글 돌리는 습관](https://youtu.be/bSjDEjT4nbE?si=GGXVKGctW2itYj20)이 있다고 한다. 정작 카나데 본인은 이를 눈치채지 못하고 있다고.
 스바루와 미코[[191]](#fn-191)는 카나데를 [골든 리트리버](/w/%EA%B3%A8%EB%93%A0%20%EB%A6%AC%ED%8A%B8%EB%A6%AC%EB%B2%84)로 비유하며 친화력이 굉장히 높다고 평가했다. 이 둘이 카나데를 골든 리트리버로 비유한 게 2025년 4월 홀로멤 14인[[192]](#fn-192)이 야카타부네를 갔던 일화에서 비롯되었는데, 보통 사람과 사람이 인사할 때 마주 보고서 인사하는 것과 달리 카나데는 일일이 멤버들의 옆에 달라붙어 인사를 건넸다고 한다. 그것도 몇몇만 그러는 게 아니라 눈에 보이는 사람 전부한테 그랬다고. 이 발언 이후 카나데에게 골든 리트리버의 귀와 꼬리를 달아주거나 아예 골든 리트리버로 그리는 팬아트들이 생겨나기 시작했다. 정작 카나데는 골든 리트리버보다는 고양이라 불리는 것이 마음에 든다고 한다. 좀 더 구체적으로는, 스이세이처럼 "흥, 모르겠는걸!"이라는 도도한 반응을 보여도 주변인들이 귀엽다고 해주는 고양이의 이미지가 좋다고. 다만 근래에 [사모예드](/w/%EC%82%AC%EB%AA%A8%EC%98%88%EB%93%9C) 카페에 들르면서 개들이 귀엽다고 하거나 노엘 / 카나타 / 라미와의 홈파티에서 노엘의 대형견 '완쵸무'를 보고선 '자기도 노엘 엄마의 강아지가 되고 싶다'라고 하는 등 점점 개를 마음에 들어하는 모습도 보이고 있다.
 
-&nbsp;
 
-&nbsp;
 
-&nbsp;
+
+
+
 
 [](#s-21)
 
 wZYMnyDJ
-[![테일러샵 미사글리아 맞춤정장](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwvoJZtiM3y2zPTVCUxSPTAcZNVbP4jyviYSrPdpbyKlEAgeFB0Mi14N59Di-VVV0Dl2WKGKY3RHPFW1S-FuXc-C1tRlE3vaaPXzODtTezZC0QXvQW4u2FM6nMBa-qxQRPWJHqfaomzxWdYluAjkVLGlbICKqG6WlHnvDuZ6VoY6rhMDR3wSd01nGFYEc16wFehdWSydNOoDLaiyeWL99iXg7IaIEVyu2VAEjFACxA6MLVLuTJjmE-WPxO7rxruZ4P.png)](#s-21)[테일러샵 미사글리아 맞춤정장](#s-21)[blog.naver.com/johntailor_co](#s-21)
-[인스타그램](#s-21)[상담과정](#s-21)[예복패키지](#s-21)[예복상담](#s-21)[천천히, 다만 심혈을 기울여 만듭니다. 남녀 맞춤정장, 셔츠, 코트, 예복 전문.](#s-21)
+[![도마포레나해모로 대표홈페이지](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwSsYGC5pamf2Q9faEUG9WWxkyFSfJEHCMuGU3fe6jZjCUTZpDvEK9wofatM2qphVvA6GlWQ8jXgGMpEyn4l7x4Ads5F9dk6C2z09ibCqzFVxUSke4YGdwsDePDGEgwmyO2qtHoSD8YDMR0RpbSAD4ed1xqyltnX5Gn11LjSxbX6QrP_2qazeeDhH28mX3h13YA4_yR3LKmmxrtaxTYMjBHSJH5RFrNJ5UYI8ZHBwG4itfVFhTiqSF0xhk0Wbiyp0I.png)](#s-21)[도마포레나해모로 대표홈페이지](#s-21)[www.도마포레나해모로.net](#s-21)
+[회사사업개요](#s-21)[주택입지환경](#s-21)[주택프리미엄](#s-21)[방문상담예약](#s-21)[대표번호 / 약 25,000세대 중심의 역세권 대전아파트 도마 포레나해모로 분양!](#s-21)
 
-[![대전 예물성지 다이아캐슬](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwPj1H2Qybtl44CdtG9eM5E_eF0LgNiBKtPqCVIDP-Tcs33fenpB8nOhjwWpafRGgdF_8_2cBU133X20EgLonosgYWIMnDJY7exOz3Yx8ToaVTybFpLU09Mu_8aqBJ_s7FIjhX1987_87Dd9Hfo5DCMV0Pvi3t4NUVg7rAU4Mw8ZdlLkFKs8cWI-_KdD68MHyXAI7tTqPLZo7_6bDXd5OE_sdXwL0vpPo_Ml7UOqzoPYjr13TwPNeG1PJXEhMTa3Sk.png)](#s-21)[대전 예물성지 다이아캐슬](#s-21)[blog.naver.com/diacastle365](#s-21)
-[커스텀 예물반지 전문샵,자체 공방에서 제작하는 BEST 예물 밴드 파격적인 할인가](#s-21)
+[![대전 세종 충청  법원경매](//i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFw6HnERRIzbpx-nzFqk1tLL3q8XqNdIAkDZc8JkX1gUNQxA9yRDdI6lvKzQwEB3xGNMyrCoWc2gB6nkxku-i80nFqMl-jBqj3HV6gWz65JnwVKhv8zvgeMpsYL7ct89Eegpd944pHDyCoZnJotSAldQ9t9GmViftWsdol6V8c9gAdVBIgwjOvxRDLGupDbFshbpchIVK2sUtHVOsuCBzaeakVicppM572PicWWrdqtutJ8fDnaCCc38ipd1iD8JSTi.png)](#s-21)[대전 세종 충청  법원경매](#s-21)[blog.naver.com/ska5680](#s-21)
+[아파트 빌라 단독주택 다가구 상가주택 오피스텔 모텔 공장 토지 경력25년 경매업체](#s-21)
 
 wZYMnyDJ
 
@@ -1107,21 +1548,21 @@ wZYMnyDJ
 나무위키는 백과사전이 아니며 검증되지 않았거나, 편향적이거나, 잘못된 서술이 있을 수 있습니다.
 나무위키는 위키위키입니다. 여러분이 직접 문서를 고칠 수 있으며, 다른 사람의 의견을 원할 경우 직접 토론을 발제할 수 있습니다.
 
-[](/RecentChanges)* [최귀화55초 전](/w/%EC%B5%9C%EA%B7%80%ED%99%94)
-* [random processing56초 전](/w/random%20processing)
-* [류마57초 전](/w/%EB%A5%98%EB%A7%88)
-* [김도연(2003)57초 전](/w/%EA%B9%80%EB%8F%84%EC%97%B0(2003))
-* [서기관(제5인격)1분 전](/w/%EC%84%9C%EA%B8%B0%EA%B4%80(%EC%A0%9C5%EC%9D%B8%EA%B2%A9))
-* [인천터미널역1분 전](/w/%EC%9D%B8%EC%B2%9C%ED%84%B0%EB%AF%B8%EB%84%90%EC%97%AD)
-* [버스 안에서1분 전](/w/%EB%B2%84%EC%8A%A4%20%EC%95%88%EC%97%90%EC%84%9C)
-* [익스트랙션 슈터1분 전](/w/%EC%9D%B5%EC%8A%A4%ED%8A%B8%EB%9E%99%EC%85%98%20%EC%8A%88%ED%84%B0)
-* [민지선/작중 행적1분 전](/w/%EB%AF%BC%EC%A7%80%EC%84%A0/%EC%9E%91%EC%A4%91%20%ED%96%89%EC%A0%81)
-* [Sol's RNG/아우라 목록1분 전](/w/Sol's%20RNG/%EC%95%84%EC%9A%B0%EB%9D%BC%20%EB%AA%A9%EB%A1%9D)
+[](/RecentChanges)* [라치오51초 전](/w/%EB%9D%BC%EC%B9%98%EC%98%A4)
+* [세리자와 타츠야/작중 행적52초 전](/w/%EC%84%B8%EB%A6%AC%EC%9E%90%EC%99%80%20%ED%83%80%EC%B8%A0%EC%95%BC/%EC%9E%91%EC%A4%91%20%ED%96%89%EC%A0%81)
+* [마우트하우젠 강제수용소53초 전](/w/%EB%A7%88%EC%9A%B0%ED%8A%B8%ED%95%98%EC%9A%B0%EC%A0%A0%20%EA%B0%95%EC%A0%9C%EC%88%98%EC%9A%A9%EC%86%8C)
+* [FC 바르셀로나/빌라노바 체제56초 전](/w/FC%20%EB%B0%94%EB%A5%B4%EC%85%80%EB%A1%9C%EB%82%98/%EB%B9%8C%EB%9D%BC%EB%85%B8%EB%B0%94%20%EC%B2%B4%EC%A0%9C)
+* [사토 사토미/출연작58초 전](/w/%EC%82%AC%ED%86%A0%20%EC%82%AC%ED%86%A0%EB%AF%B8/%EC%B6%9C%EC%97%B0%EC%9E%91)
+* [Five Nights at Freddy's: Security Breach/스토리58초 전](/w/Five%20Nights%20at%20Freddy's:%20Security%20Breach/%EC%8A%A4%ED%86%A0%EB%A6%AC)
+* [아브루초59초 전](/w/%EC%95%84%EB%B8%8C%EB%A3%A8%EC%B4%88)
+* [주디 레이예스59초 전](/w/%EC%A3%BC%EB%94%94%20%EB%A0%88%EC%9D%B4%EC%98%88%EC%8A%A4)
+* [민지선/작중 행적59초 전](/w/%EB%AF%BC%EC%A7%80%EC%84%A0/%EC%9E%91%EC%A4%91%20%ED%96%89%EC%A0%81)
+* [골드(포켓몬스터 SPECIAL)1분 전](/w/%EA%B3%A8%EB%93%9C(%ED%8F%AC%EC%BC%93%EB%AA%AC%EC%8A%A4%ED%84%B0%20SPECIAL))
 
-[](#)* [공군 수송기, 소통 착오로 일본 영공 침범…日전투기 출격](#)
-* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
+[](#)* [신정환, '도박 논란' 슈에 분노 "자기도 해놓고…불법·합법을 따져" [엑's 이슈]](#)
 * [돈스파이크, '전과 3범'인데 마약 예방 방송?…"공익 목적 OK" vs "퇴출해야" 갑론을박 [엑's 이슈]](#)
-* [신정환, '도박 논란' 슈에 분노 "자기도 해놓고…불법·합법을 따져" [엑's 이슈]](#)
+* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
+* [공군 수송기, 소통 착오로 일본 영공 침범…日전투기 출격](#)
 * ["징계 지연에 가해자 승진…서울교통공사서 성희롱 2차 피해"(종합)](#)
 [더 보기](#)
 
