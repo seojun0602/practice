@@ -44,6 +44,23 @@
 
 
 
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPauMUvnOsZXOIWRumDlJRc_k.png)
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPao0-fcFXv0S6od0Zlx4z9CA.png)
+
+[![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPahteCGpHEcShsl9SUZlfVSE.png)](#s-21)
+
+wZYMnyDJ
+[![감성을 전하는 55꽃배달!](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwTc-b9x9uHEGYV7zkhAYyQcQ51ji834iJ0zMt8oGQTmxKYGcJ3NkSISdMUfGO9rHFMxpNc9qFmEakswRghzo12ALoAC1W2xcKXnlD2hMvI2RSmwztMs5vVGsqBLpmtfKHqQ565_UJnZ6fYJ1hX_L-pOvUKj_eM05yIGzyW87Uo5hAKvSwvT0il8119jTeCMb3wJQNyRioWviH2iUSMmiNUQ43rk2oVTwANSVIyMJvKdIMcu990dfVC29gGhCUTt51.png)](#s-21)[감성을 전하는 55꽃배달!](#s-21)[55000.kr](#s-21)
+[전국꽃배달, 3단화환 55000원, 축하관엽, 난화분종류, 품격높은 전국 꽃화원](#s-21)
+
+[대전 연세바로치과의원](#s-21)[www.misodj.com](#s-21)
+[치과교정과 전문의 임경섭 대표원장 진료, 대전 둔산동 타임월드백화점 앞](#s-21)
+
+[대전유성구 도안소아치과의원](#s-21)[blog.naver.com/kabraria1](#s-21)
+[소아치과전문의, 확실한치료, 수면진정치료, 웃음가스치료, 소아청소년치아교정](#s-21)
+
+wZYMnyDJ
+
 
 
 
@@ -153,9 +170,9 @@ Office Staff
 
 | **오토노세 카나데**音(おと)乃(の)瀬(せ)奏(かなで) ｜ Otonose Kanade |  |
 |---|---|
-| [](/jump/XELZd7JUs%2BXTK6q4WG3pHLSN7AluqGgWs4nlULSx0ooGp%2FUrhv2HNtqlhDEH4zAasR%2FYm350HVirrz6QX%2Binqg%3D%3D) |  |
+| [](/jump/05jcCPPdVBR6rsT1zJgW7eYdUQb5V53FB8Rrh6Yu%2F46G2qs1wkCgBkXNteTN9%2BKU1btxHZ5wvbIEtRGakOn5Rg%3D%3D) |  |
 | [ 이미지 더 보기 ]
-| [](/jump/XELZd7JUs%2BXTK6q4WG3pHLSN7AluqGgWs4nlULSx0or%2FOTJxucPS8KTywJLitIrjFasmKamvM51ApAI8sqyV7A%3D%3D) |
+| [](/jump/05jcCPPdVBR6rsT1zJgW7eYdUQb5V53FB8Rrh6Yu%2F46WPp81CtCFNwSV2i07uzqOyBhG%2Btkx0Z3zXC0LACpq%2Bg%3D%3D) |
 |---|
 | **데이브레이크** |
  |  |
@@ -175,7 +192,7 @@ Office Staff
 | **팬덤 애칭** | 오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7)오마에라 (おまえら)[[8]](#fn-8) |
 | **별명** | 캬나디 (キャナディ)[[9]](#fn-9)카나디 (かなでぃ)[[10]](#fn-10)카나데소 (奏そ)[이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)[[11]](#fn-11)카나두이 (Kanaduy)[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)[[12]](#fn-12)카나짱 (かなちゃん)[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)오토짱 (おとちゃん)[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)[[13]](#fn-13)카난누 (かなんぬ)[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)[[14]](#fn-14)연주한국 커뮤니티 한정 |
 | **오시마크** | 🎹✨ |
-| **싸인[[15]](#fn-15)** | [](/jump/XELZd7JUs%2BXTK6q4WG3pHITlgZHvdVCbVUppca9QulsyqVPvLmd77z0I4QFb3Xgnbv5Wmlm9bQxmYJP1EUpV0w%3D%3D) |
+| **싸인[[15]](#fn-15)** | [](/jump/05jcCPPdVBR6rsT1zJgW7Vh6yfH9iWeflqq9bJu%2FYhhv%2B%2FUgs3dyZgqptMZOMZt7VYO1IVJ7XI2xSNJKNxdmsg%3D%3D) |
 | **외부 링크** | [](https://www.youtube.com/@OtonoseKanade) | [](https://x.com/otonosekanade) | [](https://hololive.hololivepro.com/talents/otonose-kanade/)| [](https://www.tiktok.com/@otonosekanade_regloss) |
 
 
@@ -195,6 +212,17 @@ Office Staff
 
 
 
+
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPauMUvnOsZXOIWRumDlJRc_k.png)
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPao0-fcFXv0S6od0Zlx4z9CA.png)
+
+[![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPahteCGpHEcShsl9SUZlfVSE.png)](#s-21)
+
+wZYMnyDJ
+[성연스피치웅변아카데미cafe.daum.net./chspeech여러사람 앞에서 말하기를 자신있고 당당한자세로 능숙하고 유창하게 하게 한다](#s-21)
+[청주대기업면접학원www.nyspeech.co.kr주요 대기업 합격자 Real 합격후기를 확인하세요!](#s-21)
+
+wZYMnyDJ
 
 
 
@@ -253,7 +281,7 @@ Office Staff
 
 [ 구독자 증가 추이 | 펼치기 · 접기 ] 
 | 
-| [](/jump/kNy6%2FXltLqdz4hVEeH393Qxom0k4lWCRId1NeF7G4Th7fWMNQPNDOfN5%2BwYNbIjVGSejUQ9%2F%2FFjVZ6auXn96kg%3D%3D) | 오토노세 카나데구독자 수 변화 추이 일람 |
+| [](/jump/05jcCPPdVBR6rsT1zJgW7eYdUQb5V53FB8Rrh6Yu%2F46G2qs1wkCgBkXNteTN9%2BKU1btxHZ5wvbIEtRGakOn5Rg%3D%3D) | 오토노세 카나데구독자 수 변화 추이 일람 |
 |---|---|
  |  |  |
 |---|---|---|
@@ -311,11 +339,11 @@ Office Staff
 
 
 
-| [](/jump/kNy6%2FXltLqdz4hVEeH393VhcY1ONJvE%2B8VMVPYdb238B8Jj2lJF5G5UEwMlt9eSZ) |
+| [](/jump/05jcCPPdVBR6rsT1zJgW7TJL0DCUD550qUtT7u%2FTeuCzbJNXKPc0a2gg2zPj%2BSPZ) |
 |---|
 | **캐릭터 삼면도** |
 
-| [](/jump/kNy6%2FXltLqdz4hVEeH393S6bRwKjJi7yeJa2ZFN4%2BlXXUI93oUrZrRUaATSIlbK3sua9u92MeuLnFHPyxfFlKA%3D%3D) |
+| [](/jump/k7Q7h3FzVBcu6OADv9ICbLRuk66a7vtciUFYimbNtOGzeM2f8hYXujHStbFnM4v4x%2BpIeoiOuKRdu%2FdzB859xg%3D%3D) |
 |---|
 | **홀로나츠 삼면도** |
 
@@ -1084,11 +1112,11 @@ Live2D 모델의 표정 변경 시 [바보털도 움직인다](https://www.youtu
 [](#s-21)
 
 wZYMnyDJ
-[![앤아버어학원 대전센터](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwbaOYytkVAjJNFQ9eahMlDvAgWiXUo4Mixx7G7I18NJRcL269IER4yz2CA_0wPDP1whd_a7tVW8o6F67v7WT8YaPYB6MzayAgY6mUXUd70YQIAtza0cPeIwmwUJT6DIItFSsFTumyLV3SwJpqQj7GvFS8BoBcdJrtaFtXvqzaMSDc79NpFrEGwi93AlCYVSB6DZBqeoHG-WNz0V1SgvVwcnFBqlCvhti-WTliaI5t1R26b_7Ck_oKqtaA99AlekD-.png)](#s-21)[앤아버어학원 대전센터](#s-21)[www.annarboracademy.co.kr](#s-21)
-[일대일 맞춤형 어학원 피어슨뷰 시험센터](#s-21)
+[![미즈간호학원 (둔산점)](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwz8d_FsydMaGWUYHVSb4VOwMXw0JKB1zcfhcH6bZcV0qAljLLROpkO8XBCEfn3f7vRhiECE23b2UhRm_s0k4n8fynuZ3pvYm2A8MzOI4vXgxUjHZzYTpVtvg_zCUPHmYWqzbXFWandDvVQLPNC2zHx4i4oIV0xdcDAkMFlknOD4cdFIQJciVKJPyTAiYjWtuwF-5YwTXDCNLLMje0RO6AvFbmJ-j_Ymhf_fNZ0v7N3Wt8qi8LPT-ucH9afmCSHBYr.png)](#s-21)[미즈간호학원 (둔산점)](#s-21)[www.miz1004.kr](#s-21)
+[친절 상담. 둔산점,지족점,시청점,은행점](#s-21)
 
-[![병원 구인사이트 1위 널스잡](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwOEU44IlfHEnlQfVdJ--WLrR1P5cm2gynw4xwgiKWMbIeEXs-g9Y8J4_x0DPM1CqY6csOUHtgCJ7cdOssk8xhBG-AZFyQp11iHOFK_Lh4eBM85t4qPcyX1CMyZbvUdMuK46KY3Cd0c44PadK--itAmtXwjcCPlRP55iMWiKUyWoK4dc8mKT92I_VDw8ozJXFbMirngFIJ-CakzGMw1djEF--zG9kzEGrVDfECxj0q2UZn3nuuorwaO-nldfzq_b2-.png)](#s-21)[병원 구인사이트 1위 널스잡](#s-21)[m.nursejob.co.kr](#s-21)
-[랭키닷컴 선정 병원구인구직 1위 ! 압도적인 채용성공률/방문자/공고, 40만회원](#s-21)
+[![서울대음대 김성훈기타학원](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwU-FMzLXbLAnbJezPEwNhhO6tQ2vZIcF_338JbiwMcI7LyjuoSIsX2FqMpRDEkXvh0JfPvh9Xnd-HdCsgcwWQK3dM2qAFkg6WCUX65tEJ7P7ph7po3o8MoM5rGt7M8U1Eu78dc0ih291YJKRV4i7hG01gf4NEqq-2o3b_zmEikEEInpQtQM6x7Nft0vwt1qILFnHJfQrG5IolXl4yrMmqk2IOwYNJ5V5JuLrKP7ZHmzYh75s5GtODIBkcAVbj5Q0n.png)](#s-21)[서울대음대 김성훈기타학원](#s-21)[blog.naver.com/essen509](#s-21)
+[세종시 기타전문학원. 클래식,어쿠스틱,우쿨렐레,취미반, 예원, 예고, 음대입시전문](#s-21)
 
 wZYMnyDJ
 
@@ -1102,22 +1130,22 @@ wZYMnyDJ
 나무위키는 백과사전이 아니며 검증되지 않았거나, 편향적이거나, 잘못된 서술이 있을 수 있습니다.
 나무위키는 위키위키입니다. 여러분이 직접 문서를 고칠 수 있으며, 다른 사람의 의견을 원할 경우 직접 토론을 발제할 수 있습니다.
 
-[](/RecentChanges)* [스탠리 은소키1분 전](/w/%EC%8A%A4%ED%83%A0%EB%A6%AC%20%EC%9D%80%EC%86%8C%ED%82%A4)
-* [노예의 길1분 전](/w/%EB%85%B8%EC%98%88%EC%9D%98%20%EA%B8%B8)
-* [인디아나 존즈1분 전](/w/%EC%9D%B8%EB%94%94%EC%95%84%EB%82%98%20%EC%A1%B4%EC%A6%88)
-* [영국의 베아트리스 공주1분 전](/w/%EC%98%81%EA%B5%AD%EC%9D%98%20%EB%B2%A0%EC%95%84%ED%8A%B8%EB%A6%AC%EC%8A%A4%20%EA%B3%B5%EC%A3%BC)
-* [홍석주(축구선수)1분 전](/w/%ED%99%8D%EC%84%9D%EC%A3%BC(%EC%B6%95%EA%B5%AC%EC%84%A0%EC%88%98))
-* [세종고속시외버스터미널/운행노선1분 전](/w/%EC%84%B8%EC%A2%85%EA%B3%A0%EC%86%8D%EC%8B%9C%EC%99%B8%EB%B2%84%EC%8A%A4%ED%84%B0%EB%AF%B8%EB%84%90/%EC%9A%B4%ED%96%89%EB%85%B8%EC%84%A0)
-* [천세윤1분 전](/w/%EC%B2%9C%EC%84%B8%EC%9C%A4)
-* [시그니처 아트카드1분 전](/w/%EC%8B%9C%EA%B7%B8%EB%8B%88%EC%B2%98%20%EC%95%84%ED%8A%B8%EC%B9%B4%EB%93%9C)
-* [동아시아인1분 전](/w/%EB%8F%99%EC%95%84%EC%8B%9C%EC%95%84%EC%9D%B8)
-* [Your Idol1분 전](/w/Your%20Idol)
+[](/RecentChanges)* [이안 블로드58초 전](/w/%EC%9D%B4%EC%95%88%20%EB%B8%94%EB%A1%9C%EB%93%9C)
+* [뉴욕 대학교/아부다비 캠퍼스59초 전](/w/%EB%89%B4%EC%9A%95%20%EB%8C%80%ED%95%99%EA%B5%90/%EC%95%84%EB%B6%80%EB%8B%A4%EB%B9%84%20%EC%BA%A0%ED%8D%BC%EC%8A%A4)
+* [미하일 고르바초프/평가1분 전](/w/%EB%AF%B8%ED%95%98%EC%9D%BC%20%EA%B3%A0%EB%A5%B4%EB%B0%94%EC%B4%88%ED%94%84/%ED%8F%89%EA%B0%80)
+* [프라이아1분 전](/w/%ED%94%84%EB%9D%BC%EC%9D%B4%EC%95%84)
+* [무라사메(유즈소프트)1분 전](/w/%EB%AC%B4%EB%9D%BC%EC%82%AC%EB%A9%94(%EC%9C%A0%EC%A6%88%EC%86%8C%ED%94%84%ED%8A%B8))
+* [유교1분 전](/w/%EC%9C%A0%EA%B5%90)
+* [나연1분 전](/w/%EB%82%98%EC%97%B0)
+* [1951년1분 전](/w/1951%EB%85%84)
+* [나찬미1분 전](/w/%EB%82%98%EC%B0%AC%EB%AF%B8)
+* [배틀필드 4/위장1분 전](/w/%EB%B0%B0%ED%8B%80%ED%95%84%EB%93%9C%204/%EC%9C%84%EC%9E%A5)
 
-[](#)* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
-* [빠니보틀, 김동현에 로킥 체험…한 대 맞고 쓰러져 "억울" (핸썸즈) [종합]](#)
-* [공군 수송기, 일본 방공식별구역 침범…日 전투기 출격(종합)](#)
-* ['내가 고X라니' 김영인, 몇천만 원 광고도 찍었는데…이혼·가정 불화 고백 (특종세상)](#)
+[](#)* ['내가 고X라니' 김영인, 몇천만 원 광고도 찍었는데…이혼·가정 불화 고백 (특종세상)](#)
 * ["징계 지연에 가해자 승진…서울교통공사서 성희롱 2차 피해"(종합)](#)
+* [빠니보틀, 김동현에 로킥 체험…한 대 맞고 쓰러져 "억울" (핸썸즈) [종합]](#)
+* ["어도어 근처만 가도 심장 뛰어→우울증 약 복용"…뉴진스, 돌아올 수 없는 강 (엑's 현장)[종합]](#)
+* [공군 수송기, 일본 방공식별구역 침범…日 전투기 출격(종합)](#)
 [더 보기](#)
 
 [](https://play.google.com/store/apps/details?id=net.umanle.namuwiki)[](https://apps.apple.com/app/id1623510780)
