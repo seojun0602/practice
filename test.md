@@ -129,8 +129,8 @@ Office Staff
 
 
 
-| [](/w/ReGLOSS) ReGLOSS 디스코그래피 [ 앨범 ]
-||---|
+| [](/w/ReGLOSS) ReGLOSS 디스코그래피 [ 앨범 ] |
+|---|
 | 1st Album |  |  |  |
 |---|---|---|---|
 | [](/w/ReGLOSS(%EC%95%A8%EB%B2%94)) |  |  |  |
