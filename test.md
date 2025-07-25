@@ -44,6 +44,24 @@
 
 
 
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPauMUvnOsZXOIWRumDlJRc_k.png)
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPao0-fcFXv0S6od0Zlx4z9CA.png)
+
+[![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPahteCGpHEcShsl9SUZlfVSE.png)](#s-21)
+
+wZYMnyDJ
+[![실시간인기 한복대여 첫날한복](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwsx8wbPh8-EMueQaZjLZ-SM0iU1LinThhG18P907HryjRauWMzPLTa5DlPDkAuHTijj2AeOIlylKDtLl7KJCOiQskFDnrbfEupVKWMGNwNmwUqDgTa2sLah84KWcGi2Is-Q0qkc90xpg8zSmRkLz65mBZKGg0xeR32hd1fbo29MBqDZ5uKQJE3ZaXx6M1u7doyJsucrB0uuDfc0Y_pg6FHPiVA02eR8UNna5jaPcQKrsNWP08SEDhWay-sSpH8d4p.png)](#s-21)[실시간인기 한복대여 첫날한복](#s-21)[www.dolbokhouse.com](#s-21)
+
+[우아하고 예쁜핏 한복대여! 신상한복입고, 고급원단, 꼼꼼상품관리 맞춤같은 한복대여](#s-21)
+
+[![대전 랩다이아몬드 도매판매점](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwmpqANq5kTobRnOI2JsyfLfRDM2ReAEH8P8BUCtouch1P--rigQXa1nxb6WXZ87c2FjUlq7u-PC87Fvu38Wr_ivKi45nbBx8UBtsqWuZZTYXab6fNNECn1yyHari8hbu_4LYqptEO83lnbNOZ7ACuSKaPuGlYPTXLi86yjA0cknCZfwdYzjQ4Z3hvFlRkDATR214SZB1MxZnBQQgjuq2YI0CM8MJNxYEXB9SAcsjcylwrMNGf6KwAp0IFdzKUWjpa.png)](#s-21)[대전 랩다이아몬드 도매판매점](#s-21)[blog.naver.com/diacastle365](#s-21)
+[GIA 랩 그로운 다이아몬드 전문점에서 프로포즈 반지 도매가격에 할인 구매하세요](#s-21)
+
+[대전이사전문 쌍마트랜스](#s-21)[www.ssangmatrans.co.kr](#s-21)
+[대전이사 전문업체, 30년 노하우, 베테랑 직원, 완벽한 마무리, 보증보험가입.](#s-21)
+
+wZYMnyDJ
+
 
 
 
@@ -153,9 +171,9 @@ Office Staff
 
 | **오토노세 카나데**音(おと)乃(の)瀬(せ)奏(かなで) ｜ Otonose Kanade |  |
 |---|---|
-| [](/jump/WhVGNEk6mzbwwWjKe6O4dMmSIsz%2FEDIS0tSwdvC%2FVAP2IUJ1ERRGr95QfFK2lIFOerdjrqdJ5BtZvYTgd6eK1Q%3D%3D) |  |
+| [](/jump/unmkRvzp5pCec0osAZ0w7Wc35c9RkynMYLl8PzlMZCEVltqc0rgtpa7A5thXRB46DPSf6ryTFGQH%2BJD0Cs9uDQ%3D%3D) |  |
 | [ 이미지 더 보기 ]
-| [](/jump/WhVGNEk6mzbwwWjKe6O4dMmSIsz%2FEDIS0tSwdvC%2FVAOLFBM%2BtxYEEMH83wVFmuOk1%2FEdDtSLYEeIhrJyldko1Q%3D%3D) |
+| [](/jump/unmkRvzp5pCec0osAZ0w7Wc35c9RkynMYLl8PzlMZCEU3u4CcvW4ve3%2F6S%2BN2i%2B9S32trbBjcUYzZBdEFEOtWw%3D%3D) |
 |---|
 | **데이브레이크** |
 |  |
@@ -175,7 +193,7 @@ Office Staff
 | **팬덤 애칭** | 오토노제이 (音(おと)の勢(ぜい))[[7]](#fn-7)오마에라 (おまえら)[[8]](#fn-8) |
 | **별명** | 캬나디 (キャナディ)[[9]](#fn-9)카나디 (かなでぃ)[[10]](#fn-10)카나데소 (奏そ)[이치조 리리카](/w/%EC%9D%B4%EC%B9%98%EC%A1%B0%20%EB%A6%AC%EB%A6%AC%EC%B9%B4)[[11]](#fn-11)카나두이 (Kanaduy)[코보 카나에루](/w/%EC%BD%94%EB%B3%B4%20%EC%B9%B4%EB%82%98%EC%97%90%EB%A3%A8)[[12]](#fn-12)카나짱 (かなちゃん)[오오조라 스바루](/w/%EC%98%A4%EC%98%A4%EC%A1%B0%EB%9D%BC%20%EC%8A%A4%EB%B0%94%EB%A3%A8)오토짱 (おとちゃん)[아카이 하아토](/w/%EC%95%84%EC%B9%B4%EC%9D%B4%20%ED%95%98%EC%95%84%ED%86%A0)[[13]](#fn-13)카난누 (かなんぬ)[사쿠라 미코](/w/%EC%82%AC%EC%BF%A0%EB%9D%BC%20%EB%AF%B8%EC%BD%94)[[14]](#fn-14)연주한국 커뮤니티 한정 |
 | **오시마크** | 🎹✨ |
-| **싸인[[15]](#fn-15)** | [](/jump/N1FIwRrW%2FasZztBkKyxzJdQzT8C2kwcxjq0MoR3JADd%2F0avTCa7klh%2F0YwzjirgZmbE05f0OuwsWRy5ELnh29Q%3D%3D) |
+| **싸인[[15]](#fn-15)** | [](/jump/unmkRvzp5pCec0osAZ0w7T4EKwQMMIaBJqFgmyqrTAZjt8sU0baFiWmHDiKO3mUMJV9QKtfXd8O%2Ba1u5Q628%2Fw%3D%3D) |
 | **외부 링크** | [](https://www.youtube.com/@OtonoseKanade) | [](https://x.com/otonosekanade) | [](https://hololive.hololivepro.com/talents/otonose-kanade/)| [](https://www.tiktok.com/@otonosekanade_regloss) |
 
 
@@ -195,6 +213,17 @@ Office Staff
 
 
 
+
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPauMUvnOsZXOIWRumDlJRc_k.png)
+![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPao0-fcFXv0S6od0Zlx4z9CA.png)
+
+[![오토노세 카나데](https://i.namu.wiki/i/2cJhv8G4_HKvBlFTZhBPahteCGpHEcShsl9SUZlfVSE.png)](#s-21)
+
+wZYMnyDJ
+[우아한 대저택, 메종드보네르mdbwedding.kr기억에 남을 예식 / 편리한 교통 / 맛있는 음식 / 합리적인 가격](#s-21)
+[1%만의 특별함 오스카주얼리blog.naver.com/oscars03결혼예물,커플링,프로포즈링전문점 오스카만의 감각적이고 고급스런디자인](#s-21)
+
+wZYMnyDJ
 
 
 
@@ -252,7 +281,7 @@ Office Staff
 
 [ 구독자 증가 추이 | 펼치기 · 접기 ] 
 | 
-| [](/jump/N1FIwRrW%2FasZztBkKyxzJQ7dozHfcSsjRjnhbpKPsSVD%2BygEg7W2MaIXA15HddwmBkcl1WFW9a4pFW4UhD2rxA%3D%3D) | 오토노세 카나데구독자 수 변화 추이 일람 |
+| [](/jump/unmkRvzp5pCec0osAZ0w7Wc35c9RkynMYLl8PzlMZCEVltqc0rgtpa7A5thXRB46DPSf6ryTFGQH%2BJD0Cs9uDQ%3D%3D) | 오토노세 카나데구독자 수 변화 추이 일람 |
 |---|---|
 |  |  |
 |---|---|---|
@@ -310,11 +339,11 @@ Office Staff
 
 
 
-| [](/jump/N1FIwRrW%2FasZztBkKyxzJUa99iq2GhB9qVQzlDZqREsuDrqlB7ec9Qwdt2IWalwF) |
+| [](/jump/unmkRvzp5pCec0osAZ0w7aa%2FIr2ivYuWeg5uw%2F5ddLIURjhtlZZnNKFBOzWX5hhP) |
 |---|
 | **캐릭터 삼면도** |
 
-| [](/jump/N1FIwRrW%2FasZztBkKyxzJeFDG4qPF%2BW3Xc3%2FCzY28HJIRwPxVkjlmCO1oQcRQgxsNgbftV8Khl34Wtuctt%2FAAg%3D%3D) |
+| [](/jump/unmkRvzp5pCec0osAZ0w7TrKCxQLAftJh%2FZ5YusuN3cKo64SHN%2BUaA5L1rEG02KG1XRv5J7KH6afnfZxPxnXfg%3D%3D) |
 |---|
 | **홀로나츠 삼면도** |
 
@@ -1082,11 +1111,11 @@ Live2D 모델의 표정 변경 시 [바보털도 움직인다](https://www.youtu
 [](#s-21)
 
 wZYMnyDJ
-[![은가비](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFw8VAbnPR5H--9p2TZhN-h1vYE-S7EbXYBLKqnbBkcmjw5cWvKcqisJQvovgdOUSkHzmwFgB4s1_8k-5qsuYinA5VGfVPzG-0cyIzvSD2hDSXzk8QqFeWOMMVWax-vUzAS6sOq86IkH_24js5OVfvZPhmYMkjGaFs76PyS9kP00Ld0s9anJzhNW1t1JTS3x5cpY8vWu-876e_NSdcK9tVDRYbb2_5xvraR8nwmALjIsw3cjyHpXVl23HbgsW09LUge.png)](#s-21)[은가비](#s-21)[blog.naver.com/rornflrorhf](#s-21)
-[100% 국산쌀로 만드는 건강하고 맛있는 앙금 플라워 수제 떡케이크 전문점](#s-21)
+[대전유성구 도안소아치과의원](#s-21)[blog.naver.com/kabraria1](#s-21)
+[소아치과전문의, 확실한치료, 수면진정치료, 웃음가스치료, 소아청소년치아교정](#s-21)
 
-[![대전 카맥스](https://i.namu.wiki/i/N7Lz1pFsw9oO2p6KLShT0GjbBYeWm7fcWdwSTv6upzDqFcNIgMzmNH4gio_mppFwBdFZ0MlgOW8yy6QdctVzw3NwnyGkPZzjz5hDIo3CKU6t8rSLPm67g3pHW9WEdcOdgbdn3fzKGjd12YwZJJhRsZu0Vk3aMKH1CxNleGhBbAiv1X1htGz5kF2SiHL-Mk92k6LxJDd7rQzo0Uw0wnFMzL1yRr_ge2PNu4g94SNIn14zYZfhSkBVbtDTi2oYifmaEJChsl9GBMLQhX4PqXUrHD--QK8g0N-CnpoNRbw-YOqlJmEkwR-R9sjl7fKPJRBj.png)](#s-21)[대전 카맥스](#s-21)[blog.naver.com/phk5714](#s-21)
-[썬팅. 블랙박스. 보조배터리. 신차패키지 전문점](#s-21)
+[대전 에어컨 설치 가은에어컨](#s-21)[blog.naver.com/lkg4146](#s-21)
+[대전 가정용 에어컨 전문 설치, 전문자격증소지, 정직한가격, 철저한 시공 및 AS](#s-21)
 
 wZYMnyDJ
 
@@ -1100,22 +1129,22 @@ wZYMnyDJ
 나무위키는 백과사전이 아니며 검증되지 않았거나, 편향적이거나, 잘못된 서술이 있을 수 있습니다.
 나무위키는 위키위키입니다. 여러분이 직접 문서를 고칠 수 있으며, 다른 사람의 의견을 원할 경우 직접 토론을 발제할 수 있습니다.
 
-[](/RecentChanges)* [권은성53초 전](/w/%EA%B6%8C%EC%9D%80%EC%84%B1)
-* [BYD53초 전](/w/BYD)
-* [상현동55초 전](/w/%EC%83%81%ED%98%84%EB%8F%99)
-* [언리미티드 블레이드 워크스 VS 게이트 오브 바빌론55초 전](/w/%EC%96%B8%EB%A6%AC%EB%AF%B8%ED%8B%B0%EB%93%9C%20%EB%B8%94%EB%A0%88%EC%9D%B4%EB%93%9C%20%EC%9B%8C%ED%81%AC%EC%8A%A4%20VS%20%EA%B2%8C%EC%9D%B4%ED%8A%B8%20%EC%98%A4%EB%B8%8C%20%EB%B0%94%EB%B9%8C%EB%A1%A0)
-* [마헨드라(네팔)55초 전](/w/%EB%A7%88%ED%97%A8%EB%93%9C%EB%9D%BC(%EB%84%A4%ED%8C%94))
-* [매직 더 개더링/카드 일람/영원함의 가장자리/커맨더56초 전](/w/%EB%A7%A4%EC%A7%81%20%EB%8D%94%20%EA%B0%9C%EB%8D%94%EB%A7%81/%EC%B9%B4%EB%93%9C%20%EC%9D%BC%EB%9E%8C/%EC%98%81%EC%9B%90%ED%95%A8%EC%9D%98%20%EA%B0%80%EC%9E%A5%EC%9E%90%EB%A6%AC/%EC%BB%A4%EB%A7%A8%EB%8D%94)
-* [대전 하나 시티즌/유니폼57초 전](/w/%EB%8C%80%EC%A0%84%20%ED%95%98%EB%82%98%20%EC%8B%9C%ED%8B%B0%EC%A6%8C/%EC%9C%A0%EB%8B%88%ED%8F%BC)
-* [박재범/음반 목록58초 전](/w/%EB%B0%95%EC%9E%AC%EB%B2%94/%EC%9D%8C%EB%B0%98%20%EB%AA%A9%EB%A1%9D)
-* [한지안(2015)1분 전](/w/%ED%95%9C%EC%A7%80%EC%95%88(2015))
-* [하시다 이타루1분 전](/w/%ED%95%98%EC%8B%9C%EB%8B%A4%20%EC%9D%B4%ED%83%80%EB%A3%A8)
+[](/RecentChanges)* [FC 바르셀로나/2025-26 시즌36초 전](/w/FC%20%EB%B0%94%EB%A5%B4%EC%85%80%EB%A1%9C%EB%82%98/2025-26%20%EC%8B%9C%EC%A6%8C)
+* [갤럭시 Z 폴드738초 전](/w/%EA%B0%A4%EB%9F%AD%EC%8B%9C%20Z%20%ED%8F%B4%EB%93%9C7)
+* [대전 러버스43초 전](/w/%EB%8C%80%EC%A0%84%20%EB%9F%AC%EB%B2%84%EC%8A%A4)
+* [심수관44초 전](/w/%EC%8B%AC%EC%88%98%EA%B4%80)
+* [9주 5소경44초 전](/w/9%EC%A3%BC%205%EC%86%8C%EA%B2%BD)
+* [하정웅48초 전](/w/%ED%95%98%EC%A0%95%EC%9B%85)
+* [아마치 니야49초 전](/w/%EC%95%84%EB%A7%88%EC%B9%98%20%EB%8B%88%EC%95%BC)
+* [아르헨티나 요리49초 전](/w/%EC%95%84%EB%A5%B4%ED%97%A8%ED%8B%B0%EB%82%98%20%EC%9A%94%EB%A6%AC)
+* [잭 베이커50초 전](/w/%EC%9E%AD%20%EB%B2%A0%EC%9D%B4%EC%BB%A4)
+* [가면라이더 블러드52초 전](/w/%EA%B0%80%EB%A9%B4%EB%9D%BC%EC%9D%B4%EB%8D%94%20%EB%B8%94%EB%9F%AC%EB%93%9C)
 
-[](#)* [인천 아들 총격범, 27년 전 운영하던 비디오방서 성범죄 저질러](#)
-* [정동영 "연락채널·대화 복구가 할일…부처명 변경은 우선 아냐"(종합2보)](#)
+[](#)* [길음동 기원서 노년 칼부림…대치 끝 테이저건 제압·병원 이송(종합2보)](#)
+* [인천 아들 총격범, 27년 전 운영하던 비디오방서 성범죄 저질러](#)
 * [특검, 압수수색날 '문고리' 소환…'김건희 목걸이' 추정품 확보(종합2보)](#)
-* [서울 길음동 기원서 칼부림…피의자 포함 3명 병원 이송(종합)](#)
-* ['선거참패'에도 이시바 버티자…자민당내 퇴진 압박 움직임 확산(종합)](#)
+* [[단독] '만취 음주운전' 송영규, '하차' 연극 무대서 스포트라이트…밝게 웃으며 퇴장 (엑's 현장)](#)
+* [SPC그룹, 이 대통령 앞에서 "안전에 624억원 추가 투자"](#)
 [더 보기](#)
 
 [](https://play.google.com/store/apps/details?id=net.umanle.namuwiki)[](https://apps.apple.com/app/id1623510780)
